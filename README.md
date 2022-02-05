@@ -1040,2390 +1040,2390 @@ tower for her true love and true love's first kiss.
 
 \n -And the squatters?
 
--As good as gone.
+\n -As good as gone.
 
--What kind of quest?
+\n -What kind of quest?
 
--Let me get this straight. You're gonna go fight a dragon and rescue a 
+\n -Let me get this straight. You're gonna go fight a dragon and rescue a 
 
-princess just so Farquaad will give you back a swamp which you only 
+\n princess just so Farquaad will give you back a swamp which you only 
 
-don't have because he filled it full of freaks in the first place.
+\n don't have because he filled it full of freaks in the first place.
 
--Is that about right?
+\n -Is that about right?
 
--Maybe there's a good reason donkeys shouldn't talk.
+\n -Maybe there's a good reason donkeys shouldn't talk.
 
--I don't get it. Why don't you just pull some of that orge stuff on 
+\n -I don't get it. Why don't you just pull some of that orge stuff on 
 
-him? Throttle him, lay siege to his fortress, grinds his bones to make 
+\n him? Throttle him, lay siege to his fortress, grinds his bones to make 
 
-your bread, the whole orge trip.
+\n your bread, the whole orge trip.
 
--Oh, I know what. Maybe I could have decapitated an entire village and 
+\n -Oh, I know what. Maybe I could have decapitated an entire village and 
 
-put their heads on a pike, gotten a knife, cut open their spleen and 
+\n put their heads on a pike, gotten a knife, cut open their spleen and 
 
-drink their fluids. Does that sound good to you?
+\n drink their fluids. Does that sound good to you?
 
--Uh, no, not really, no.
+\n -Uh, no, not really, no.
 
--For your information, there's a lot more to orges than people think.
+\n -For your information, there's a lot more to orges than people think.
 
--Example?
+\n -Example?
 
--Example? Okay, um, orges are like onions.
+\n -Example? Okay, um, orges are like onions.
 
--{Sniffs} They stink?
+\n -{Sniffs} They stink?
 
--Yes - - No!
+\n -Yes - - No!
 
--They make you cry?
+\n -They make you cry?
 
--No!
+\n -No!
 
--You leave them in the sun, they get all brown, start sproutin' little 
+\n -You leave them in the sun, they get all brown, start sproutin' little 
 
-white hairs.
+\n white hairs.
 
--No! Layers! Onions have layers. Orges have layers! Onions have 
+\n -No! Layers! Onions have layers. Orges have layers! Onions have 
 
-layers. You get it? We both have layers. 
+\n layers. You get it? We both have layers. 
 
-{Sighs}
+\n {Sighs}
 
--Oh, you both have layers. Oh. {Sniffs} You know, not everybody likes 
+\n -Oh, you both have layers. Oh. {Sniffs} You know, not everybody likes 
 
-onions. Cake! Everybody loves cakes! Cakes have layers.
+\n onions. Cake! Everybody loves cakes! Cakes have layers.
 
--I don't care... what everyone likes. Orges are not like cakes.
+\n -I don't care... what everyone likes. Orges are not like cakes.
 
--You know what else everybody likes? Parfaits. Have you ever met a 
+\n -You know what else everybody likes? Parfaits. Have you ever met a 
 
-person, you say, "Let's get some parfait," they say, "No, I don't like 
+\n person, you say, "Let's get some parfait," they say, "No, I don't like 
 
-no parfait"? Parfaits are delicious.
+\n no parfait"? Parfaits are delicious.
 
--No! You dense, irritating, miniature beast of burden! Orges are like 
+\n -No! You dense, irritating, miniature beast of burden! Orges are like 
 
-onions! And of story. Bye-bye. See ya later.
+\n onions! And of story. Bye-bye. See ya later.
 
--Parfaits may be the most delicious thing on the whole damn planet.
+\n -Parfaits may be the most delicious thing on the whole damn planet.
 
--You know, I think I preferred your humming. Do you have a tissure or 
+\n -You know, I think I preferred your humming. Do you have a tissure or 
 
-something? I'm making a mess. Just the word parfait make me start 
+\n something? I'm making a mess. Just the word parfait make me start 
 
-slobbering.
+\n slobbering.
 
+\n 
 
+\n I'm on my way from misery to happiness today
 
-I'm on my way from misery to happiness today
+\n Uh-huh,uh-huh, uh-huh, uh-huh
 
-Uh-huh,uh-huh, uh-huh, uh-huh
+\n I'm on my way from misery to happiness today
 
-I'm on my way from misery to happiness today
+\n Uh-huh,uh-huh, uh-huh, uh-huh
 
-Uh-huh,uh-huh, uh-huh, uh-huh
+\n And everything that you receive up yonder
 
-And everything that you receive up yonder
+\n Is what you give to me the day I wander
 
-Is what you give to me the day I wander
+\n I'm on my way 
 
-I'm on my way 
+\n I'm on my way 
 
-I'm on my way 
+\n I'm on my way 
 
-I'm on my way 
+\n 
 
+\n -Ohh! Shrek! Did you do that?
 
+\n -You gotta warn somebody before you just crack one off. My mouth was 
 
--Ohh! Shrek! Did you do that?
+\n open. Believe me, Donkey, if it was me, you'd be dead. {Sniffs} It's 
 
--You gotta warn somebody before you just crack one off. My mouth was 
+\n brimstone We must be getting close.
 
-open. Believe me, Donkey, if it was me, you'd be dead. {Sniffs} It's 
+\n -Yeah, right, brimstone. Don't be talking about it's the brimstone. I 
 
-brimstone We must be getting close.
+\n know what I smell. It wasn't no brimstone. It didn't come off no stone 
 
--Yeah, right, brimstone. Don't be talking about it's the brimstone. I 
+\n neither.
 
-know what I smell. It wasn't no brimstone. It didn't come off no stone 
+\n {Rumbling}
 
-neither.
+\n -Sure, it's big enough, but look at the location.
 
-{Rumbling}
+\n {Laughing}
 
--Sure, it's big enough, but look at the location.
+\n -Uh, Shrek? Uh, remember when you said orges have layers?
 
-{Laughing}
+\n -Oh, aye.
 
--Uh, Shrek? Uh, remember when you said orges have layers?
+\n -Well, I have a bit of a confession to make. Donkeys don't have 
 
--Oh, aye.
+\n layers. We wear our fear right out there on our sleeves.
 
--Well, I have a bit of a confession to make. Donkeys don't have 
+\n -Wait a second.  Donkeys don't have sleeves.
 
-layers. We wear our fear right out there on our sleeves.
+\n -You know what I mean.
 
--Wait a second.  Donkeys don't have sleeves.
+\n -You can't tell me you're afraid of heights.
 
--You know what I mean.
+\n -I'm just a little uncomfortable about being on a rickety bridge over 
 
--You can't tell me you're afraid of heights.
+\n a boiling like of lava!
 
--I'm just a little uncomfortable about being on a rickety bridge over 
+\n -Come on, Donkey. I'm right here beside ya, okay? For emotional 
 
-a boiling like of lava!
+\n support., we'll just tackle this thing together one little baby step 
 
--Come on, Donkey. I'm right here beside ya, okay? For emotional 
+\n at a time.
 
-support., we'll just tackle this thing together one little baby step 
+\n -Really?
 
-at a time.
+\n -Really, really.
 
--Really?
+\n -Okay, that makes me feel so much better.
 
--Really, really.
+\n -Just keep moving. And don't look  down.
 
--Okay, that makes me feel so much better.
+\n -Okay, don't look  down. Don't look  down. Don't look  down. Keep on 
 
--Just keep moving. And don't look  down.
+\n moving. Don't look  down.
 
--Okay, don't look  down. Don't look  down. Don't look  down. Keep on 
+\n {Gasps}
 
-moving. Don't look  down.
+\n -Shrek! I'm lookin' down! Oh, God, I can't do this! Just let me off, 
 
-{Gasps}
+\n please! 
 
--Shrek! I'm lookin' down! Oh, God, I can't do this! Just let me off, 
+\n -But you're already halfway.
 
-please! 
+\n -But I know that half is safe!
 
--But you're already halfway.
+\n -Okay, fine. I don't have time for this. You go back.
 
--But I know that half is safe!
+\n -Shrek, no! Wait!
 
--Okay, fine. I don't have time for this. You go back.
+\n -Just, Donkey - - Let's have a dance then, shall me?
 
--Shrek, no! Wait!
+\n -Don't do that!
 
--Just, Donkey - - Let's have a dance then, shall me?
+\n -Oh, I'm sorry. Do what?
 
--Don't do that!
+\n -Oh, this?
 
--Oh, I'm sorry. Do what?
+\n -Yes, that!
 
--Oh, this?
+\n -Yes? Yes, do it. Okay.
 
--Yes, that!
+\n {Screams}
 
--Yes? Yes, do it. Okay.
+\n -No, Shrek! No! Stop it!
 
-{Screams}
+\n -You said do it! I'm doin' it.
 
--No, Shrek! No! Stop it!
+\n -I'm gonna die. I'm gonna die. Shrek, I'm gonna die. Oh!
 
--You said do it! I'm doin' it.
+\n -That'll do, Donkey. That'll do.
 
--I'm gonna die. I'm gonna die. Shrek, I'm gonna die. Oh!
+\n -Cool.
 
--That'll do, Donkey. That'll do.
+\n -So where is this fire-breathing pain-in-the-neck anyway?
 
--Cool.
+\n -Inside, waiting for us to rescue her.
 
--So where is this fire-breathing pain-in-the-neck anyway?
+\n {Chuckles}
 
--Inside, waiting for us to rescue her.
+\n -I was talkin' about the dragon, Shrek.
 
-{Chuckles}
+\n {Water dripping, wind howling}
 
--I was talkin' about the dragon, Shrek.
+\n -You afraid?
 
-{Water dripping, wind howling}
+\n -No.
 
--You afraid?
+\n -But - -
 
--No.
+\n - Shh.
 
--But - -
+\n -Oh, good. Me neither.
 
-- Shh.
+\n {Gasps}
 
--Oh, good. Me neither.
+\n -'Cause there's nothin' wrong with bein' afraid. Fear's a sensible 
 
-{Gasps}
+\n response to an unfamiliar situation. Unfamiliar dangerous situation, I 
 
--'Cause there's nothin' wrong with bein' afraid. Fear's a sensible 
+\n might add. With a dragon that breathes fire and eats knights and 
 
-response to an unfamiliar situation. Unfamiliar dangerous situation, I 
+\n breathes fire, it sure doesn't mean you're a coward if you're a little 
 
-might add. With a dragon that breathes fire and eats knights and 
+\n scared. I sure as heck ain't no coward. I know that.
 
-breathes fire, it sure doesn't mean you're a coward if you're a little 
+\n {Gasps}
 
-scared. I sure as heck ain't no coward. I know that.
+\n -Donkey, two things, okay? Shut ... up. Now go over there and see if 
 
-{Gasps}
+\n you can find any stairs.
 
--Donkey, two things, okay? Shut ... up. Now go over there and see if 
+\n -Stairs? I thought we was lookin' for the princess.
 
-you can find any stairs.
+\n -The princess will be up the stairs in the highest room in the tallest 
 
--Stairs? I thought we was lookin' for the princess.
+\n tower.
 
--The princess will be up the stairs in the highest room in the tallest 
+\n -What makes you think she'll be there?
 
-tower.
+\n -I read it in a book once.
 
--What makes you think she'll be there?
+\n -Cool. You handle the dragon. I'll handle the stairs. I'll find those 
 
--I read it in a book once.
+\n stairs. I'll whip their butt too. Those stairs won't know which way 
 
--Cool. You handle the dragon. I'll handle the stairs. I'll find those 
+\n they're goin'.
 
-stairs. I'll whip their butt too. Those stairs won't know which way 
+\n {Creacing}
 
-they're goin'.
+\n -I'm gonna take drastic steps. Kick it to the curb. Don't mess with 
 
-{Creacing}
+\n me. I'm the stair master. I've mastered the stairs. I wish I had a 
 
--I'm gonna take drastic steps. Kick it to the curb. Don't mess with 
+\n step right here. I'd step all over it.
 
-me. I'm the stair master. I've mastered the stairs. I wish I had a 
+\n -Well, at least we know where the princess is, but where's the - - 
 
-step right here. I'd step all over it.
+\n -Dragon!
 
--Well, at least we know where the princess is, but where's the - - 
+\n {Screams}
 
--Dragon!
+\n {Gasps}
 
-{Screams}
+\n {Roars}
 
-{Gasps}
+\n -Donkey, look out!
 
-{Roars}
+\n {Screams}
 
--Donkey, look out!
+\n {Whimpering}
 
-{Screams}
+\n -Got ya!
 
-{Whimpering}
+\n {Roars}
 
--Got ya!
+\n {Gasps}
 
-{Roars}
+\n {Shouts}
 
-{Gasps}
+\n -Whoa! Whoa! Whoa!
 
-{Shouts}
+\n {Screaming}
 
--Whoa! Whoa! Whoa!
+\n {Gasps}
 
-{Screaming}
+\n -Oh! Aah! Aah!
 
-{Gasps}
+\n {Gasping}
 
--Oh! Aah! Aah!
+\n {Crowls}
 
-{Gasping}
+\n -No. Oh, no, No!
 
-{Crowls}
+\n {Screams}
 
--No. Oh, no, No!
+\n -Oh, what large teeth you have.
 
-{Screams}
+\n {Crowls}
 
--Oh, what large teeth you have.
+\n -I mean white, sparkling teeth. I know you probably hear this all time 
 
-{Crowls}
+\n from your food, but you must bleach, 'cause that is one dazzling smile 
 
--I mean white, sparkling teeth. I know you probably hear this all time 
+\n you got  there. Do I detect a hint of minty freshness? And you know 
 
-from your food, but you must bleach, 'cause that is one dazzling smile 
+\n what else? You're - - You're a girl dragon! Oh, sure! I mean, of 
 
-you got  there. Do I detect a hint of minty freshness? And you know 
+\n course you're a girl dragon. You're just reeking of feminine beauty. 
 
-what else? You're - - You're a girl dragon! Oh, sure! I mean, of 
+\n What's the matter with you? You got something in your eye? Ohh. Oh. 
 
-course you're a girl dragon. You're just reeking of feminine beauty. 
+\n Oh. Man, I'd really love to stay, but you know, I'm, uh - - 
 
-What's the matter with you? You got something in your eye? Ohh. Oh. 
+\n (Coughs)
 
-Oh. Man, I'd really love to stay, but you know, I'm, uh - - 
+\n -I'm an asthmatic, and I don't know if it'd work out if you're gonna 
 
-(Coughs)
+\n blow smoke rings. Shrek!
 
--I'm an asthmatic, and I don't know if it'd work out if you're gonna 
+\n {Gasps}
 
-blow smoke rings. Shrek!
+\n {Whimpering}
 
-{Gasps}
+\n -No! Shrek! Shrek! Shrek!
 
-{Whimpering}
+\n {Groans, Sighs}
 
--No! Shrek! Shrek! Shrek!
+\n {Vocalizing}
 
-{Groans, Sighs}
+\n -Oh! Oh!
 
-{Vocalizing}
+\n -Wake up!
 
--Oh! Oh!
+\n -What?
 
--Wake up!
+\n -Are you Princess Fiona?
 
--What?
+\n -I am, awaiting a knight so bold as to rescue me.
 
--Are you Princess Fiona?
+\n -Oh, that's nice. Now let's go!
 
--I am, awaiting a knight so bold as to rescue me.
+\n -But wait, Sir Knight. This be-ith our first meeting. Should it not be 
 
--Oh, that's nice. Now let's go!
+\n a wonderful, romantic moment?
 
--But wait, Sir Knight. This be-ith our first meeting. Should it not be 
+\n -Yeah, sorry, lady. There's no time.
 
-a wonderful, romantic moment?
+\n -Hey, wait. What are you doing? You should sweep me off my feet out 
 
--Yeah, sorry, lady. There's no time.
+\n yonder window and down a rope onto your valiant steed.
 
--Hey, wait. What are you doing? You should sweep me off my feet out 
+\n -You've had a lot of time to plan this, haven't you?
 
-yonder window and down a rope onto your valiant steed.
+\n -Mm-hmm.
 
--You've had a lot of time to plan this, haven't you?
+\n {Screams, grunts}
 
--Mm-hmm.
+\n -But we have to savor this moment! You could recite an epic poem for 
 
-{Screams, grunts}
+\n me. A ballad? A sonnet! A limerick? Or something!
 
--But we have to savor this moment! You could recite an epic poem for 
+\n -I don't think so.
 
-me. A ballad? A sonnet! A limerick? Or something!
+\n -Can I at least know the name of my champion?
 
--I don't think so.
+\n -Um, Shrek.
 
--Can I at least know the name of my champion?
+\n -Sir Shrek.
 
--Um, Shrek.
+\n {Cleans throat}
 
--Sir Shrek.
+\n -I pray that you take this favor as a token of my gratitude.
 
-{Cleans throat}
+\n -Thanks!
 
--I pray that you take this favor as a token of my gratitude.
+\n {Roaring}
 
--Thanks!
+\n -You didn't slay the dragon?
 
-{Roaring}
+\n -It's on my to-do list. Now come on!
 
--You didn't slay the dragon?
+\n {Screams}
 
--It's on my to-do list. Now come on!
+\n -But this isn't right! You were meant to charge in, sword drawn, 
 
-{Screams}
+\n banner flying. That's what all the other knights did.
 
--But this isn't right! You were meant to charge in, sword drawn, 
+\n -Yeah, right before they burst into flame.
 
-banner flying. That's what all the other knights did.
+\n -That's not the point. Oh!
 
--Yeah, right before they burst into flame.
+\n -Wait. Where are you going? The next's over there.
 
--That's not the point. Oh!
+\n -Well, I have to save my ass.
 
--Wait. Where are you going? The next's over there.
+\n -What kind of knight are you?
 
--Well, I have to save my ass.
+\n -One of a kind.
 
--What kind of knight are you?
+\n -Slow down. Slow down, baby, please. I believe it's healthy to get to 
 
--One of a kind.
+\n know someone over a long perriod of time. Just call me old-fashioned. 
 
--Slow down. Slow down, baby, please. I believe it's healthy to get to 
+\n {Laughs}
 
-know someone over a long perriod of time. Just call me old-fashioned. 
+\n -I don't want to rush into a physical relationship. I'm not 
 
-{Laughs}
+\n emotionally ready for a commitment of, uh, this - -  Magnitude really 
 
--I don't want to rush into a physical relationship. I'm not 
+\n is the word I'm looking for. Magnitude- - Hey, that is unwanted 
 
-emotionally ready for a commitment of, uh, this - -  Magnitude really 
+\n physical contact. Hey, what are you doing? Okay, okay. Let's just back 
 
-is the word I'm looking for. Magnitude- - Hey, that is unwanted 
+\n up a little and take this one step at a time. We really should get to 
 
-physical contact. Hey, what are you doing? Okay, okay. Let's just back 
+\n know each other first as friends or pen pals. I'm on the road a lot, 
 
-up a little and take this one step at a time. We really should get to 
+\n but I just love receiving cards - -  I'd really love to stay, but - - 
 
-know each other first as friends or pen pals. I'm on the road a lot, 
+\n Don't do that! That's my tail! That's my personal tail. You're gonna 
 
-but I just love receiving cards - -  I'd really love to stay, but - - 
+\n tear it off. I don't give permission - - What are you gonna do with 
 
-Don't do that! That's my tail! That's my personal tail. You're gonna 
+\n that? Hey, now. No way. No! No! No, no! No. No, no, no. No! Oh!
 
-tear it off. I don't give permission - - What are you gonna do with 
+\n {Growls}
 
-that? Hey, now. No way. No! No! No, no! No. No, no, no. No! Oh!
+\n {Roaring}
 
-{Growls}
+\n {Gasps}
 
-{Roaring}
+\n -Hi, Princess!
 
-{Gasps}
+\n -It talks!
 
--Hi, Princess!
+\n -Yeah, it's getting him to shut up that's the trick.
 
--It talks!
+\n {Screams}
 
--Yeah, it's getting him to shut up that's the trick.
+\n {Screaming}
 
-{Screams}
+\n -Oh!
 
-{Screaming}
+\n {Thuds}
 
--Oh!
+\n {Groans}
 
-{Thuds}
+\n {Roars}
 
-{Groans}
+\n {Roaring}
 
-{Roars}
+\n -Okay, you two, heard for the exit! I'll take care of the dragon.
 
-{Roaring}
+\n {Fchoing}
 
--Okay, you two, heard for the exit! I'll take care of the dragon.
+\n -Run!
 
-{Fchoing}
+\n {Gasping}
 
--Run!
+\n {Screaming}
 
-{Gasping}
+\n {Roaring}
 
-{Screaming}
+\n {Screams}
 
-{Roaring}
+\n {Roars}
 
-{Screams}
+\n {Panting, sighs}
 
-{Roars}
+\n {Whimpers}
 
-{Panting, sighs}
+\n {Roars}
 
-{Whimpers}
+\n -You did it!
 
-{Roars}
+\n -You rescued me! You're amazing. You're - - You're wonderful. 
 
--You did it!
+\n You're... a little unorthodox I'll admit. But they deed is great, and 
 
--You rescued me! You're amazing. You're - - You're wonderful. 
+\n thine heart is pure. I am eternally in your debt. 
 
-You're... a little unorthodox I'll admit. But they deed is great, and 
+\n {Clears throat}
 
-thine heart is pure. I am eternally in your debt. 
+\n -And where would a brave knight be without his noble steed?
 
-{Clears throat}
+\n -I hope you heard that. She called me a noble steed. She think I'm a 
 
--And where would a brave knight be without his noble steed?
+\n steed.
 
--I hope you heard that. She called me a noble steed. She think I'm a 
+\n -The battle is won. You may remove your helmet, good Sir Knight.
 
-steed.
+\n -Uh, no.
 
--The battle is won. You may remove your helmet, good Sir Knight.
+\n -Why not?
 
--Uh, no.
+\n -I have helmet hair.
 
--Why not?
+\n -Please. I would'st look upon the face of my rescuer.
 
--I have helmet hair.
+\n -No, no, you wouldn't - - 'st.
 
--Please. I would'st look upon the face of my rescuer.
+\n -But how will you kiss me?
 
--No, no, you wouldn't - - 'st.
+\n -What? That wasn't in the job description.
 
--But how will you kiss me?
+\n -Maybe it's a perk.
 
--What? That wasn't in the job description.
+\n -No, it's destiny. Oh, you must know how it goes. A princess locked in 
 
--Maybe it's a perk.
+\n a tower and beset by a dragon is rescued by a brave knight, and then 
 
--No, it's destiny. Oh, you must know how it goes. A princess locked in 
+\n they share true love's first kiss.
 
-a tower and beset by a dragon is rescued by a brave knight, and then 
+\n -Hmm? With Shrek? You think- - Wait. Wait. You think that Shrek is you 
 
-they share true love's first kiss.
+\n true love?
 
--Hmm? With Shrek? You think- - Wait. Wait. You think that Shrek is you 
+\n -Well, yes.
 
-true love?
+\n {Laughing}
 
--Well, yes.
+\n -You think Shrek is your true love!
 
-{Laughing}
+\n -What is so funny?
 
--You think Shrek is your true love!
+\n -Let's just say I'm not your tipe, okay?
 
--What is so funny?
+\n -Of course, you are. You're my rescuer. Now - - Now remove your 
 
--Let's just say I'm not your tipe, okay?
+\n helmet.
 
--Of course, you are. You're my rescuer. Now - - Now remove your 
+\n -Look. I really don't think this is a good idea.
 
-helmet.
+\n -Just take off the helmet.
 
--Look. I really don't think this is a good idea.
+\n -I'm not going to.
 
--Just take off the helmet.
+\n -Take ot off.
 
--I'm not going to.
+\n -No!
 
--Take ot off.
+\n -Now!
 
--No!
+\n -Okay! Easy. As you command. Your Highness.
 
--Now!
+\n -You- - You're a- - an orge.
 
--Okay! Easy. As you command. Your Highness.
+\n -Oh, you were expecting Prince Charming.
 
--You- - You're a- - an orge.
+\n -Well, yes, actually. Oh, no. This is all wrong. You're not supposed 
 
--Oh, you were expecting Prince Charming.
+\n to be an orge.
 
--Well, yes, actually. Oh, no. This is all wrong. You're not supposed 
+\n {Sighs}
 
-to be an orge.
+\n -Princess, I was sent to rescue you by Lord Farquaad, okay? He is the 
 
-{Sighs}
+\n one who wants to marry you.
 
--Princess, I was sent to rescue you by Lord Farquaad, okay? He is the 
+\n -Then why didn't he come rescue me?
 
-one who wants to marry you.
+\n -Good question. You should ask him that when we get there.
 
--Then why didn't he come rescue me?
+\n -But I have to be rescued by my true love, not by some prge and his- - 
 
--Good question. You should ask him that when we get there.
+\n his pet.
 
--But I have to be rescued by my true love, not by some prge and his- - 
+\n -So much for noble steed.
 
-his pet.
+\n -You're not making my job any easier.
 
--So much for noble steed.
+\n -I'm sorry, but your job is not my problem. You can tell Lord Farquaad 
 
--You're not making my job any easier.
+\n that if he wants to rescue me properly, I'll be waiting for him right 
 
--I'm sorry, but your job is not my problem. You can tell Lord Farquaad 
+\n here.
 
-that if he wants to rescue me properly, I'll be waiting for him right 
+\n -Hey! I'm no one's messenger boy, all right? I'm a delivery boy.
 
-here.
+\n -You wouldn't dare. Put me down!
 
--Hey! I'm no one's messenger boy, all right? I'm a delivery boy.
+\n -Ya comin', Donkey?
 
--You wouldn't dare. Put me down!
+\n -I'm right behind ya.
 
--Ya comin', Donkey?
+\n -Put me down, or you will suffer the consequences! This is not 
 
--I'm right behind ya.
+\n dignified! Put me down!
 
--Put me down, or you will suffer the consequences! This is not 
+\n -Okay, so here's another question. Say there's a woman that digs you, 
 
-dignified! Put me down!
+\n right, but you don't really like her that way. How do you let her down 
 
--Okay, so here's another question. Say there's a woman that digs you, 
+\n real easy so her feelings aren't hurt, but you don't get burned to a 
 
-right, but you don't really like her that way. How do you let her down 
+\n crisp and eaten?
 
-real easy so her feelings aren't hurt, but you don't get burned to a 
+\n -You just tell her she's not your true love. Everyone knowest what 
 
-crisp and eaten?
+\n happens when you find your - -  Hey!
 
--You just tell her she's not your true love. Everyone knowest what 
+\n {Sighs}
 
-happens when you find your - -  Hey!
+\n -The sooner we get to DuLoc the better.
 
-{Sighs}
+\n -You're gonna love it there, Princess. It's beautiful!
 
--The sooner we get to DuLoc the better.
+\n -And what of my groom-to-be? Lord Farquaad? What's he like?
 
--You're gonna love it there, Princess. It's beautiful!
+\n -Let me put it this way, Princess. Men of Farquaad's stature are in 
 
--And what of my groom-to-be? Lord Farquaad? What's he like?
+\n short supply.
 
--Let me put it this way, Princess. Men of Farquaad's stature are in 
+\n {Laughs}
 
-short supply.
+\n -I don't know. There are those who think little of him.
 
-{Laughs}
+\n -Stop it. Stop it, both of you. You're just jealous you can never 
 
--I don't know. There are those who think little of him.
+\n measure up to a great ruler like Lord Farquaad.
 
--Stop it. Stop it, both of you. You're just jealous you can never 
+\n -Yeah, well, maybe you're right, Princess. But I'll let you do the 
 
-measure up to a great ruler like Lord Farquaad.
+\n "measuring" when you see him tomorrow.
 
--Yeah, well, maybe you're right, Princess. But I'll let you do the 
+\n -Tomorrow? It'll take that long? Shouldn't we stop to make camp?
 
-"measuring" when you see him tomorrow.
+\n -No, that'll take longer. We can keep going.
 
--Tomorrow? It'll take that long? Shouldn't we stop to make camp?
+\n -But there's robbers in the woods.
 
--No, that'll take longer. We can keep going.
+\n -Whoa! Time out, Shrek! Camping's starting to sound good.
 
--But there's robbers in the woods.
+\n -Hey, come on. I'm scarier than anything we're going to see in this 
 
--Whoa! Time out, Shrek! Camping's starting to sound good.
+\n forest.
 
--Hey, come on. I'm scarier than anything we're going to see in this 
+\n -I need to find somewhere to camp now!
 
-forest.
+\n {Birds wings fluttering}
 
--I need to find somewhere to camp now!
+\n {Grunting}
 
-{Birds wings fluttering}
+\n -Hey! Over here.
 
-{Grunting}
+\n -Shrek, we can do better than that. I don't think this is fit for a 
 
--Hey! Over here.
+\n princess.
 
--Shrek, we can do better than that. I don't think this is fit for a 
+\n -No, no, it's perfect. It just needs a few homey touches.
 
-princess.
+\n -Homey touches? Like what?
 
--No, no, it's perfect. It just needs a few homey touches.
+\n {Crashing}
 
--Homey touches? Like what?
+\n -A door? Well, gentlemen, I bid thee good night.
 
-{Crashing}
+\n -You want me to read you a bedtime story? I will.
 
--A door? Well, gentlemen, I bid thee good night.
+\n -I said good night!
 
--You want me to read you a bedtime story? I will.
+\n -Shrek, What are you doing?
 
--I said good night!
+\n {Laughs}
 
--Shrek, What are you doing?
+\n -I just- - You know - - Oh, come on. I was just kidding.
 
-{Laughs}
+\n {Fire cracking}
 
--I just- - You know - - Oh, come on. I was just kidding.
+\n -And, uh, that one, that's Throwback, the only orge to ever spit over 
 
-{Fire cracking}
+\n three wheat fields. Right. Yeah.
 
--And, uh, that one, that's Throwback, the only orge to ever spit over 
+\n -Hey, can you tell my future from these stars?
 
-three wheat fields. Right. Yeah.
+\n -The stars don't tell the future, Donkey. They tell stories. Look, 
 
--Hey, can you tell my future from these stars?
+\n there's Bloodnut, the Flatulent. You can guess what he's famous for.
 
--The stars don't tell the future, Donkey. They tell stories. Look, 
+\n -I know you're making this up.
 
-there's Bloodnut, the Flatulent. You can guess what he's famous for.
+\n -No, look. There he is,  and there's the group of hunters running away 
 
--I know you're making this up.
+\n from his stench.
 
--No, look. There he is,  and there's the group of hunters running away 
+\n -That ain't nothin' but a bunch of little dots.
 
-from his stench.
+\n -You know, Donkey, sometimes things are more than they appear. Hmm? 
 
--That ain't nothin' but a bunch of little dots.
+\n Forget it.
 
--You know, Donkey, sometimes things are more than they appear. Hmm? 
+\n {Sighs}
 
-Forget it.
+\n -Hey, Shrek, what we gonna do when we get our swamp anyway?
 
-{Sighs}
+\n -Our swamp?
 
--Hey, Shrek, what we gonna do when we get our swamp anyway?
+\n -You know, when we're through rescuing the princess.
 
--Our swamp?
+\n -We? Donkey, there's no "we". There's no "our". There's just me and my 
 
--You know, when we're through rescuing the princess.
+\n swamp. The first thing I'm gonna do is build a ten-foot wall arond my 
 
--We? Donkey, there's no "we". There's no "our". There's just me and my 
+\n land.
 
-swamp. The first thing I'm gonna do is build a ten-foot wall arond my 
+\n -You cut me deep, Shrek. You cut me real deep just now. You know what 
 
-land.
+\n I think? I think this whole wall thing is just a way to keep somebody 
 
--You cut me deep, Shrek. You cut me real deep just now. You know what 
+\n out.
 
-I think? I think this whole wall thing is just a way to keep somebody 
+\n -No, do ya think?
 
-out.
+\n -Are you hidin' something?
 
--No, do ya think?
+\n -Never mind, Donkey.
 
--Are you hidin' something?
+\n -Oh, this is another one of those onion things, isn't it?
 
--Never mind, Donkey.
+\n -No, this is one of those drop-it and leave-it alone things.
 
--Oh, this is another one of those onion things, isn't it?
+\n -Why don't you want to talk about it?
 
--No, this is one of those drop-it and leave-it alone things.
+\n -Why do you want to talk about it?
 
--Why don't you want to talk about it?
+\n -Why are you blocking?
 
--Why do you want to talk about it?
+\n -I'm not blocking.
 
--Why are you blocking?
+\n -Oh, yes, you are.
 
--I'm not blocking.
+\n -Donkey, I'm warning you.
 
--Oh, yes, you are.
+\n -Who you trying to keep out?
 
--Donkey, I'm warning you.
+\n -Everyone! Okay?
 
--Who you trying to keep out?
+\n -Oh, now we're gettin' somewhere.
 
--Everyone! Okay?
+\n -Oh! For the love of Pete!
 
--Oh, now we're gettin' somewhere.
+\n -What's your problem? What you got against the whole world anyway?
 
--Oh! For the love of Pete!
+\n -Look, I'm not the one with the problem, okay? It's the world that 
 
--What's your problem? What you got against the whole world anyway?
+\n seems to have a problem with me. People take one look at me and go. 
 
--Look, I'm not the one with the problem, okay? It's the world that 
+\n "Aah! Help! Run! A big, stupid, ugly orge!" They judge me before they 
 
-seems to have a problem with me. People take one look at me and go. 
+\n even know me. That's why I'm better off alone.
 
-"Aah! Help! Run! A big, stupid, ugly orge!" They judge me before they 
+\n -You know what? When we met, I didn't think you was just a big, 
 
-even know me. That's why I'm better off alone.
+\n stupid, ugly orge.
 
--You know what? When we met, I didn't think you was just a big, 
+\n -Yeah, I know.
 
-stupid, ugly orge.
+\n -So, uh, are there any donkeys up there?
 
--Yeah, I know.
+\n -Well, there's, um, Gabby, the Small and Annoying.
 
--So, uh, are there any donkeys up there?
+\n -Okay, okay, I see it now. The big shiny one, right there. That one 
 
--Well, there's, um, Gabby, the Small and Annoying.
+\n there?
 
--Okay, okay, I see it now. The big shiny one, right there. That one 
+\n -That's the moon.
 
-there?
+\n -Oh, okay.
 
--That's the moon.
+\n 
 
--Oh, okay.
+\n {Orchestra}
 
+\n {Dulcimer}
 
+\n -Again, show me again. Mirror, mirror, show her to me. Show me the 
 
-{Orchestra}
+\n princess.
 
-{Dulcimer}
+\n -Hmph.
 
--Again, show me again. Mirror, mirror, show her to me. Show me the 
+\n -Ah. Perfect.
 
-princess.
+\n {Inhales}
 
--Hmph.
+\n 
 
--Ah. Perfect.
+\n {Snoring}
 
-{Inhales}
+\n {Vocalizing}
 
+\n {Whistling}
 
+\n {Sizzling}
 
-{Snoring}
+\n {Sniffs, yawns}
 
-{Vocalizing}
+\n -Mmm, yeah, you know I like it like that.
 
-{Whistling}
+\n --Come on, baby. I said I like it.
 
-{Sizzling}
+\n -Donkey, wake up.
 
-{Sniffs, yawns}
+\n -Huh? What?
 
--Mmm, yeah, you know I like it like that.
+\n -Wake up.
 
---Come on, baby. I said I like it.
+\n -What?
 
--Donkey, wake up.
+\n -Good morning. Hm, how do you like your eggs?
 
--Huh? What?
+\n -Good morning, Princess!
 
--Wake up.
+\n -What's all this about?
 
--What?
+\n -You know, we kind of got off to a bad start yesterday. I wanted to 
 
--Good morning. Hm, how do you like your eggs?
+\n make it up to you. I mean, after all, you did rescue me.
 
--Good morning, Princess!
+\n -Uh, thanks.
 
--What's all this about?
+\n {Sniffs}
 
--You know, we kind of got off to a bad start yesterday. I wanted to 
+\n -Well, eat up. We've got a big day ahead of us.
 
-make it up to you. I mean, after all, you did rescue me.
+\n {Belches}
 
--Uh, thanks.
+\n -Shrek!
 
-{Sniffs}
+\n -What? It's a compliment. Better out than in, I always say. {Laughs}
 
--Well, eat up. We've got a big day ahead of us.
+\n -Well, it's no way to behave in front of a princess.
 
-{Belches}
+\n {Belches}
 
--Shrek!
+\n -Thanks.
 
--What? It's a compliment. Better out than in, I always say. {Laughs}
+\n -She's as nasty as you are.
 
--Well, it's no way to behave in front of a princess.
+\n -{Laughs} You know, you're not exactly what I expected.
 
-{Belches}
+\n -Well, maybe you shouldn't judge people before you get to know them.
 
--Thanks.
+\n {Vocalizing}
 
--She's as nasty as you are.
+\n 
 
--{Laughs} You know, you're not exactly what I expected.
+\n -La liberte! Hey!
 
--Well, maybe you shouldn't judge people before you get to know them.
+\n -Princess!
 
-{Vocalizing}
+\n {Laughs}
 
+\n -What are you doing?
 
+\n -Be still, mon cherie, for I am you savior! And I am rescuing you from 
 
--La liberte! Hey!
+\n this green - -
 
--Princess!
+\n {Kissing sounds}
 
-{Laughs}
+\n -beast.
 
--What are you doing?
+\n -Hey!
 
--Be still, mon cherie, for I am you savior! And I am rescuing you from 
+\n -That's my princess! Go find you own!
 
-this green - -
+\n -Please, monster! Can't you see I'm a little busy here?
 
-{Kissing sounds}
+\n -Look, pal, I don't know who you think you are!
 
--beast.
+\n -Oh! Of couse! Oh, how rude. Please let me introduse myself. Oh, Merry 
 
--Hey!
+\n Men. 
 
--That's my princess! Go find you own!
+\n {Laughs}
 
--Please, monster! Can't you see I'm a little busy here?
+\n 
 
--Look, pal, I don't know who you think you are!
+\n {Accordion}
 
--Oh! Of couse! Oh, how rude. Please let me introduse myself. Oh, Merry 
+\n Ta, dah, dah, dah, whoo.
 
-Men. 
+\n I steal from the rich and give to the needy.
 
-{Laughs}
+\n He takes a wee percentage, 
 
+\n But I'm not greedy. I rescue pretty damsels
 
+\n Man, I'm good
 
-{Accordion}
+\n What a guy, Monsieur Hood
 
-Ta, dah, dah, dah, whoo.
+\n Break it down
 
-I steal from the rich and give to the needy.
+\n I like an honest fight
 
-He takes a wee percentage, 
+\n and a saucy little maid
 
-But I'm not greedy. I rescue pretty damsels
+\n What he's basically saying
 
-Man, I'm good
+\n is he likes to get - - 
 
-What a guy, Monsieur Hood
+\n Paid
 
-Break it down
+\n So
 
-I like an honest fight
+\n When an orge in the bush
 
-and a saucy little maid
+\n grabs a lady by the tush
 
-What he's basically saying
+\n That's bad
 
-is he likes to get - - 
+\n That's bad
 
-Paid
+\n When a beauty's with a beast
 
-So
+\n it makes me awfully mad
 
-When an orge in the bush
+\n He's mad
 
-grabs a lady by the tush
+\n He's really, really mad
 
-That's bad
+\n I'll take my blade and
 
-That's bad
+\n ram it through your heart
 
-When a beauty's with a beast
+\n Keep your eyes on me, boys
 
-it makes me awfully mad
+\n 'cause I'm about to start
 
-He's mad
+\n 
 
-He's really, really mad
+\n {Grunts, Groans}
 
-I'll take my blade and
+\n {Karate Yell}
 
-ram it through your heart
+\n {Merry Men Gasping}
 
-Keep your eyes on me, boys
+\n {Panting}
 
-'cause I'm about to start
+\n -Man, that was annoying!
 
+\n -Oh, you little- - 
 
+\n {Karate Yell}
 
-{Grunts, Groans}
+\n {Accordion}
 
-{Karate Yell}
+\n {Shouting, groaning}
 
-{Merry Men Gasping}
+\n {Chuckles}
 
-{Panting}
+\n -Uh, shall we?
 
--Man, that was annoying!
+\n -Hold the phone.
 
--Oh, you little- - 
+\n {Grunts}
 
-{Karate Yell}
+\n Oh! Whoa, whoa, whoa. Hold on now. Where did that come from?
 
-{Accordion}
+\n -What?
 
-{Shouting, groaning}
+\n -That! Back there. That was amazing! Where did you learn that?
 
-{Chuckles}
+\n -Well - - {Chuckles} When one lives alone, uh, one has to learn these 
 
--Uh, shall we?
+\n things in case there's a - - There's an arrow in your butt!
 
--Hold the phone.
+\n -What? Oh, would you look at that?
 
-{Grunts}
+\n -Oh, no. This is all my fault. I'm so sorry.
 
-Oh! Whoa, whoa, whoa. Hold on now. Where did that come from?
+\n -Why? What's wrong?
 
--What?
+\n -Shrek's hurt.
 
--That! Back there. That was amazing! Where did you learn that?
+\n -Shrek's hurt. Shrek's hurt? Oh, no, Shrek's gonna die.
 
--Well - - {Chuckles} When one lives alone, uh, one has to learn these 
+\n -Donkey, I'm okay.
 
-things in case there's a - - There's an arrow in your butt!
+\n -You can't do this to me, Shrek. I'm too young for you to die. Keep 
 
--What? Oh, would you look at that?
+\n you legs elevated. Turn your head and cough. Does anyone know the 
 
--Oh, no. This is all my fault. I'm so sorry.
+\n Heimlich?
 
--Why? What's wrong?
+\n -Donkey! Calm down. If you want to help Shrek, run into the woods and 
 
--Shrek's hurt.
+\n find me a blue flower with red thorns.
 
--Shrek's hurt. Shrek's hurt? Oh, no, Shrek's gonna die.
+\n -Blue flower, red thorns. Okay, I'm on it. Blue flower, red thorns. 
 
--Donkey, I'm okay.
+\n Don't die Shrek. If you see a long tunnel, stay away from the light!
 
--You can't do this to me, Shrek. I'm too young for you to die. Keep 
+\n -{Both} Donkey!
 
-you legs elevated. Turn your head and cough. Does anyone know the 
+\n -Oh, yeah. Right. Blue flower, red thorns.
 
-Heimlich?
+\n -What are the flowers for?
 
--Donkey! Calm down. If you want to help Shrek, run into the woods and 
+\n -For getting rid of Donkey.
 
-find me a blue flower with red thorns.
+\n -Ah.
 
--Blue flower, red thorns. Okay, I'm on it. Blue flower, red thorns. 
+\n -Now you hold still, and I'll yank this thing out.
 
-Don't die Shrek. If you see a long tunnel, stay away from the light!
+\n -Ow! Hey! Easy with the yankin'.
 
--{Both} Donkey!
+\n -I'm sorry, but it has to come out.
 
--Oh, yeah. Right. Blue flower, red thorns.
+\n -No, it's tender.
 
--What are the flowers for?
+\n -Now, hold on.
 
--For getting rid of Donkey.
+\n -What you're doing is the opposite of help.
 
--Ah.
+\n -Don't move.
 
--Now you hold still, and I'll yank this thing out.
+\n -Look, time out.
 
--Ow! Hey! Easy with the yankin'.
+\n -Would you - - 
 
--I'm sorry, but it has to come out.
+\n {Grunts}
 
--No, it's tender.
+\n -Okay. What do you propose we do?
 
--Now, hold on.
+\n -Blue flower, red thorns. Blue flower, red thorns. Blue flower, red 
 
--What you're doing is the opposite of help.
+\n thorns. This would be so much easier if I wasn't color-blind! Blue 
 
--Don't move.
+\n flower, red thorns.
 
--Look, time out.
+\n -Ow!
 
--Would you - - 
+\n -Hold on, Shrek! I'm comin'!
 
-{Grunts}
+\n -Ow! Not good.
 
--Okay. What do you propose we do?
+\n -Okay. Okay. I can nearly see the head.
 
--Blue flower, red thorns. Blue flower, red thorns. Blue flower, red 
+\n {Grunts}
 
-thorns. This would be so much easier if I wasn't color-blind! Blue 
+\n -It's just about - - 
 
-flower, red thorns.
+\n -Ow! Ohh!
 
--Ow!
+\n -Ahem.
 
--Hold on, Shrek! I'm comin'!
+\n -Nothing happend. We were just, uh - - 
 
--Ow! Not good.
+\n -Look, if you wanted to be alone, all you had to do was ask. Okay?
 
--Okay. Okay. I can nearly see the head.
+\n -Oh, come on! That's the last thing on my mind. The princess here was 
 
-{Grunts}
+\n just- - Ugh! 
 
--It's just about - - 
+\n -Ow!
 
--Ow! Ohh!
+\n -Hey, what's that?
 
--Ahem.
+\n {Nervous chickle}
 
--Nothing happend. We were just, uh - - 
+\n -That's- - Is that blood?
 
--Look, if you wanted to be alone, all you had to do was ask. Okay?
+\n {Sighs}
 
--Oh, come on! That's the last thing on my mind. The princess here was 
+\n {Bird chirping}
 
-just- - Ugh! 
+\n {Grunts}
 
--Ow!
+\n 
 
--Hey, what's that?
+\n My beloved monster and me
 
-{Nervous chickle}
+\n We go everywhere together
 
--That's- - Is that blood?
+\n Wearin' a raincoat
 
-{Sighs}
+\n that has four sleeves
 
-{Bird chirping}
+\n Gets us through all kinds of weather
 
-{Grunts}
+\n 
 
+\n -Aah!
 
+\n 
 
-My beloved monster and me
+\n She will always be the only thing
 
-We go everywhere together
+\n That comes between me and the awful sting
 
-Wearin' a raincoat
+\n That comes from living in a world
 
-that has four sleeves
+\n that's so damn mean
 
-Gets us through all kinds of weather
+\n {Croaks}
 
+\n Oh, oh-oh-oh-oh
 
+\n -Hey!
 
--Aah!
+\n La-la, la-la, la-la-la-la
 
+\n {Both laughing}
 
+\n La-la, la-la, la-la
 
-She will always be the only thing
+\n 
 
-That comes between me and the awful sting
+\n -There it is, Princess. Your future awaits you.
 
-That comes from living in a world
+\n -That's DuLoc?
 
-that's so damn mean
+\n -Yeah, I know. You know, Shrek thinks Lord Farquaad's compensating for 
 
-{Croaks}
+\n something,  which I think means he has a really - - Ow!
 
-Oh, oh-oh-oh-oh
+\n -Um, I, uh- -  I guess we better move on.
 
--Hey!
+\n -Sure. But, Shrek? I'm - - I'm worried about Donkey.
 
-La-la, la-la, la-la-la-la
+\n {Blubbering}
 
-{Both laughing}
+\n -What?
 
-La-la, la-la, la-la
+\n -I mean, look at him. He doesn't look so good. 
 
+\n -What are you talking about? I'm fine.
 
+\n -That's what they always say, and then next thing you know, you're on 
 
--There it is, Princess. Your future awaits you.
+\n your back. Dead.
 
--That's DuLoc?
+\n -You know, she's right. You look awful. Do you want to sit down?
 
--Yeah, I know. You know, Shrek thinks Lord Farquaad's compensating for 
+\n -Uh, you know, I'll make you some tea.
 
-something,  which I think means he has a really - - Ow!
+\n -I didn't want to say nothin', but I got this twinge in my neck, and 
 
--Um, I, uh- -  I guess we better move on.
+\n when I turn my head like this, look, 
 
--Sure. But, Shrek? I'm - - I'm worried about Donkey.
+\n {Bones crunch}
 
-{Blubbering}
+\n -Ow! See?
 
--What?
+\n -Who's hungry? I'll find us some dinner.
 
--I mean, look at him. He doesn't look so good. 
+\n -I'll get the firewood.
 
--What are you talking about? I'm fine.
+\n -Hey, where you goin'? Oh, man, I can't feel my toes! I don't have any 
 
--That's what they always say, and then next thing you know, you're on 
+\n toes! I think I need a hug.
 
-your back. Dead.
+\n 
 
--You know, she's right. You look awful. Do you want to sit down?
+\n -Mmm. This is good. This is really good. What is this?
 
--Uh, you know, I'll make you some tea.
+\n -Uh, weedrat. Rotisserie style.
 
--I didn't want to say nothin', but I got this twinge in my neck, and 
+\n -No kidding. Well, this is delicious.
 
-when I turn my head like this, look, 
+\n -Well, they're also great in stews. Now, I don't mean to brag, but I 
 
-{Bones crunch}
+\n make a mean weedrat stew.
 
--Ow! See?
+\n {Chuckling}
 
--Who's hungry? I'll find us some dinner.
+\n {Sighs}
 
--I'll get the firewood.
+\n -I guess I'll be dining a little differently tomorrow night.
 
--Hey, where you goin'? Oh, man, I can't feel my toes! I don't have any 
+\n {Gulps}
 
-toes! I think I need a hug.
+\n -Maybe you can come visit me in the swamp sometime. I'll cook all kind 
 
+\n of stuff for you. Swamp toad soup, fish eye tartare - - you name it.
 
+\n {Chuckles}
 
--Mmm. This is good. This is really good. What is this?
+\n -I'd like that.
 
--Uh, weedrat. Rotisserie style.
+\n {Slurps, laughs}
 
--No kidding. Well, this is delicious.
+\n 
 
--Well, they're also great in stews. Now, I don't mean to brag, but I 
+\n See the pyramids along the Nile
 
-make a mean weedrat stew.
+\n 
 
-{Chuckling}
+\n -Um, Princess?
 
-{Sighs}
+\n 
 
--I guess I'll be dining a little differently tomorrow night.
+\n Watch the sunrise from a tropic isle
 
-{Gulps}
+\n 
 
--Maybe you can come visit me in the swamp sometime. I'll cook all kind 
+\n -Yes, Shrek?
 
-of stuff for you. Swamp toad soup, fish eye tartare - - you name it.
+\n -I, um, I was wondering.
 
-{Chuckles}
+\n 
 
--I'd like that.
+\n Just remember, darling all the while
 
-{Slurps, laughs}
+\n 
 
+\n -Are you- - 
 
+\n 
 
-See the pyramids along the Nile
+\n You belong to me
 
+\n 
 
+\n {Sighs} 
 
--Um, Princess?
+\n -Are you gonna eat that?
 
+\n {Chuckles}
 
+\n -Man, isn't this romantic? Just look at that sunset.
 
-Watch the sunrise from a tropic isle
+\n -Sunset?
 
+\n -Oh, no! I mean, it's late. I-It's very late.
 
+\n -What?
 
--Yes, Shrek?
+\n -Wait a minute. I see what's goin' on here. You're afraid of the dark, 
 
--I, um, I was wondering.
+\n aren't you?
 
+\n -Yes! Yes, that's it. I'm terrified. You know, I'd better go inside.
 
+\n -Don't feel bad, Princess. I used to be afraid of the dark, too, until 
 
-Just remember, darling all the while
+\n - - Hey, no, wait. I'm still afraid of the dark.
 
+\n {Shrek sighs}
 
+\n  -Good night.
 
--Are you- - 
+\n  -Good night.
 
+\n {Door creaks}
 
+\n -Ohh! Now I really see what's goin' on here.
 
-You belong to me
+\n -Oh, what are you talkin' about?
 
+\n -I don't even wanna hear it. Look, I'm an animal, and I got instincts. 
 
+\n And I know you two were diggin' on each other. I could feel it.
 
-{Sighs} 
+\n -You're crazy. I'm just bringing her back to Farquaad.
 
--Are you gonna eat that?
+\n -Oh, come on, Shrek. Wake up and smell the pheromones. Just go on in 
 
-{Chuckles}
+\n and tell her how you feel.
 
--Man, isn't this romantic? Just look at that sunset.
+\n -I- - There's nothing to tell. Besides, even if I did tell her that, 
 
--Sunset?
+\n well, you know - - and I'm not sayin' I do 'cause I don't - - she's a 
 
--Oh, no! I mean, it's late. I-It's very late.
+\n princess, and I'm - - 
 
--What?
+\n -An orge?
 
--Wait a minute. I see what's goin' on here. You're afraid of the dark, 
+\n -Yeah. An orge.
 
-aren't you?
+\n -Hey, where you goin'?
 
--Yes! Yes, that's it. I'm terrified. You know, I'd better go inside.
+\n -To get... move firewood.
 
--Don't feel bad, Princess. I used to be afraid of the dark, too, until 
+\n {Sighs} 
 
-- - Hey, no, wait. I'm still afraid of the dark.
+\n 
 
-{Shrek sighs}
+\n -Princess? Princess Fiona? Princess, where are you?
 
- -Good night.
+\n {Wings fluttering}
 
- -Good night.
+\n -Princess?
 
-{Door creaks}
+\n {Creaking}
 
--Ohh! Now I really see what's goin' on here.
+\n {Gasps}
 
--Oh, what are you talkin' about?
+\n -It's very spooky in here. I ain't playing no games.
 
--I don't even wanna hear it. Look, I'm an animal, and I got instincts. 
+\n {Screams}
 
-And I know you two were diggin' on each other. I could feel it.
+\n -Aah!
 
--You're crazy. I'm just bringing her back to Farquaad.
+\n -Oh, no!
 
--Oh, come on, Shrek. Wake up and smell the pheromones. Just go on in 
+\n -No, help!
 
-and tell her how you feel.
+\n -Shh!
 
--I- - There's nothing to tell. Besides, even if I did tell her that, 
+\n -Shrek! Shrek! Shrek!
 
-well, you know - - and I'm not sayin' I do 'cause I don't - - she's a 
+\n -No, it's okay. It's okay.
 
-princess, and I'm - - 
+\n -What did you do with the princess?
 
--An orge?
+\n -Donkey, I'm the princess.
 
--Yeah. An orge.
+\n -Aah!
 
--Hey, where you goin'?
+\n -It's me, in this body.
 
--To get... move firewood.
+\n -Oh, my God! You ate the princess. Can you hear me?
 
-{Sighs} 
+\n -Donkey!
 
+\n -Listen, keep breathing! I'll get you out of there!
 
+\n -No!
 
--Princess? Princess Fiona? Princess, where are you?
+\n -Shrek! Shrek! Shrek!
 
-{Wings fluttering}
+\n -Shh.
 
--Princess?
+\n -Shrek!
 
-{Creaking}
+\n -This is me.
 
-{Gasps}
+\n {Muffled mumbling}
 
--It's very spooky in here. I ain't playing no games.
+\n -Princess? What happened to you? You're, uh, uh, uh, different.
 
-{Screams}
+\n -I'm ugly, okay?
 
--Aah!
+\n -Well, yeah! Was it something you ate? 'Cause I told Shrek those rats 
 
--Oh, no!
+\n was a bad idea. You are what you eat, I said. Now - - 
 
--No, help!
+\n -No.
 
--Shh!
+\n -I - - I've been this way as long as I can remember.
 
--Shrek! Shrek! Shrek!
+\n -What do you mean? Look, I ain't never seen you like this before.
 
--No, it's okay. It's okay.
+\n -It's only happens when sun goes down.
 
--What did you do with the princess?
+\n "By night one way, by day another. This shall be the norm... until you 
 
--Donkey, I'm the princess.
+\n find true love's first kiss... and then take love's true form."
 
--Aah!
+\n -Ah, that's beautiful. I didn't know you wrote poetry.
 
--It's me, in this body.
+\n -It's a spell.
 
--Oh, my God! You ate the princess. Can you hear me?
+\n {Sighs} 
 
--Donkey!
+\n -When I was a little girl, a witch cast a spell on me. Every night I 
 
--Listen, keep breathing! I'll get you out of there!
+\n become this. This horrible, ugly beast! I was placed in a tower to 
 
--No!
+\n await the day my true love would rescue me. That's why I have to marry 
 
--Shrek! Shrek! Shrek!
+\n Lord Farquaad tomorrow before the sun sets and he sees me like this.
 
--Shh.
+\n {Sobs}
 
--Shrek!
+\n -All right, all right. Calm down. Look, it's not that bad. You're not 
 
--This is me.
+\n that ugly. Well, I ain't gonna lie. You are ugly. But you only look 
 
-{Muffled mumbling}
+\n like this at night. Shrek's ugly 24-7.
 
--Princess? What happened to you? You're, uh, uh, uh, different.
+\n -But Donkey, I'm a princess, and this is not how a princess is meant 
 
--I'm ugly, okay?
+\n to look.
 
--Well, yeah! Was it something you ate? 'Cause I told Shrek those rats 
+\n -Princess, how 'bout if you don't marry Farquaad?
 
-was a bad idea. You are what you eat, I said. Now - - 
+\n -I have to.  Only my true love's kiss can break the spell.
 
--No.
+\n -But, you know, um, you're kind of an orge, and Shrek - - well, you 
 
--I - - I've been this way as long as I can remember.
+\n got a lot in common.
 
--What do you mean? Look, I ain't never seen you like this before.
+\n -Shrek?
 
--It's only happens when sun goes down.
+\n 
 
-"By night one way, by day another. This shall be the norm... until you 
+\n -Princess, I - - Uh, how's it going, first of all? Good? Um, good for 
 
-find true love's first kiss... and then take love's true form."
+\n me too. I'm okay. I saw this flower and thought of you because it's 
 
--Ah, that's beautiful. I didn't know you wrote poetry.
+\n pretty and - - well, I don't really like it, but I thought you might 
 
--It's a spell.
+\n like it 'cause you're pretty. But I like you anyway. I'd - - uh, uh - 
 
-{Sighs} 
+\n - 
 
--When I was a little girl, a witch cast a spell on me. Every night I 
+\n {Sighs}
 
-become this. This horrible, ugly beast! I was placed in a tower to 
+\n -I'm in trouble. Okay, here we go.
 
-await the day my true love would rescue me. That's why I have to marry 
+\n -I can't just marry whoever I want. Take a good look at me, Donkey. I 
 
-Lord Farquaad tomorrow before the sun sets and he sees me like this.
+\n mean, really, who can ever love a beast so hideous and ugly? 
 
-{Sobs}
+\n "Princess" and "ugly" don't go together. That's why I can't stay here 
 
--All right, all right. Calm down. Look, it's not that bad. You're not 
+\n with Shrek.
 
-that ugly. Well, I ain't gonna lie. You are ugly. But you only look 
+\n {Gasps}
 
-like this at night. Shrek's ugly 24-7.
+\n -My only chance to live happily ever after is to marry my true love.
 
--But Donkey, I'm a princess, and this is not how a princess is meant 
+\n {Deep sigh}
 
-to look.
+\n -Don't you see, Donkey? That's just how it has to be. It's the only 
 
--Princess, how 'bout if you don't marry Farquaad?
+\n way to break the spell.
 
--I have to.  Only my true love's kiss can break the spell.
+\n -You at least gotta tell Shrek the truth.
 
--But, you know, um, you're kind of an orge, and Shrek - - well, you 
+\n -No! You can't breathe a word. No one must ever know.
 
-got a lot in common.
+\n -What's the point of being able to talk if you gotta keep secrets?
 
--Shrek?
+\n -Promise you won't tell. Promise!
 
+\n -All right, all right. I won't tell him. But you should. I just know 
 
+\n before this is over, I'm gonna need a whole lot of serious therapy.
 
--Princess, I - - Uh, how's it going, first of all? Good? Um, good for 
+\n -Look at my eye twitchin'.
 
-me too. I'm okay. I saw this flower and thought of you because it's 
+\n {Door opens}
 
-pretty and - - well, I don't really like it, but I thought you might 
+\n {Snoring}
 
-like it 'cause you're pretty. But I like you anyway. I'd - - uh, uh - 
+\n -I tell him, I tell him not. I tell him, I tell him not. I tell him. 
 
-- 
+\n -Shrek! Shrek, there's something I want - - 
 
-{Sighs}
+\n {Snoring}
 
--I'm in trouble. Okay, here we go.
+\n -Shrek. Are you all right?
 
--I can't just marry whoever I want. Take a good look at me, Donkey. I 
+\n -Perfect! Never been better.
 
-mean, really, who can ever love a beast so hideous and ugly? 
+\n -I - - I don't - - There's something I have to tell you.
 
-"Princess" and "ugly" don't go together. That's why I can't stay here 
+\n -You don't have to tell me anything, Princess. I heard enough last 
 
-with Shrek.
+\n night.
 
-{Gasps}
+\n -You heard what I said?
 
--My only chance to live happily ever after is to marry my true love.
+\n -Every word.
 
-{Deep sigh}
+\n -I thought you'd understand.
 
--Don't you see, Donkey? That's just how it has to be. It's the only 
+\n -Oh, I undersatnd. Like you said, "Who could love a hideous, ugly 
 
-way to break the spell.
+\n beast?" 
 
--You at least gotta tell Shrek the truth.
+\n -But I thought that wouldn't matter to you.
 
--No! You can't breathe a word. No one must ever know.
+\n -Yeah? Well, it does.
 
--What's the point of being able to talk if you gotta keep secrets?
+\n {Gasps, sighs}
 
--Promise you won't tell. Promise!
+\n -Ah, right on time.
 
--All right, all right. I won't tell him. But you should. I just know 
+\n {Horse whinnies}
 
-before this is over, I'm gonna need a whole lot of serious therapy.
+\n -Princess, I've brought you a little something.
 
--Look at my eye twitchin'.
+\n {Fanfare}
 
-{Door opens}
+\n {Yawns}
 
-{Snoring}
+\n -What'd I miss? What'd I miss?
 
--I tell him, I tell him not. I tell him, I tell him not. I tell him. 
+\n {Muffled}
 
--Shrek! Shrek, there's something I want - - 
+\n -Who said that? Couldn't have been a donkey.
 
-{Snoring}
+\n -Princess Fiona.
 
--Shrek. Are you all right?
+\n -As promised. Now hand it over.
 
--Perfect! Never been better.
+\n -Very well, orge. The deed to your swamp, cleared out, as agreed.
 
--I - - I don't - - There's something I have to tell you.
+\n -Take it and go before I change my mind.
 
--You don't have to tell me anything, Princess. I heard enough last 
+\n -Forgive me, Princess, for startling you, but you startled me, for I 
 
-night.
+\n have never seen such a radiant beauty before. I'm Lord Farquaad.
 
--You heard what I said?
+\n -Lord Farquaad? Oh, no, no.
 
--Every word.
+\n {Snaps fingers}
 
--I thought you'd understand.
+\n -Forgive me, my lord, for I was just saying a short... farewell.
 
--Oh, I undersatnd. Like you said, "Who could love a hideous, ugly 
+\n -Oh, that is so sweet. You don't have to waste good manners on the 
 
-beast?" 
+\n orge. It's not like it has feelings.
 
--But I thought that wouldn't matter to you.
+\n -No, you're right. It doesn't.
 
--Yeah? Well, it does.
+\n -Princess Fiona, beautiful, fair, flawerss Fiona. I ask your hand in 
 
-{Gasps, sighs}
+\n marriage.
 
--Ah, right on time.
+\n {Gasps}
 
-{Horse whinnies}
+\n -Will you be the perfect bride for the perfect groom?
 
--Princess, I've brought you a little something.
+\n -Lord Farquaad, I accept. Nothing would make - - 
 
-{Fanfare}
+\n -Excellent! I'll start the plans, for tomorrow we wed!
 
-{Yawns}
+\n -No! I mean, uh, why wait? Let's get married today before the sun 
 
--What'd I miss? What'd I miss?
+\n sets.
 
-{Muffled}
+\n -Oh, anxious, are you? You're right. The sooner, the better. There's 
 
--Who said that? Couldn't have been a donkey.
+\n so much to do! Threre's the caterer, the cake, the band, the guest 
 
--Princess Fiona.
+\n list. Captain, round up some guests!
 
--As promised. Now hand it over.
+\n -Fare-thee-well, orge.
 
--Very well, orge. The deed to your swamp, cleared out, as agreed.
+\n -Shrek, what are you doing? You're letting her get away.
 
--Take it and go before I change my mind.
+\n -Yeah? So what?
 
--Forgive me, Princess, for startling you, but you startled me, for I 
+\n -Shrek, there's something about her you don't know. Look, I talked to 
 
-have never seen such a radiant beauty before. I'm Lord Farquaad.
+\n her last night, She's - - 
 
--Lord Farquaad? Oh, no, no.
+\n -I know you talked to her last night. You're great pals, aren't ya? 
 
-{Snaps fingers}
+\n Now, if you two are such good friends, why don't you follow her home?
 
--Forgive me, my lord, for I was just saying a short... farewell.
+\n -Shrek, I - - I wanna go with you.
 
--Oh, that is so sweet. You don't have to waste good manners on the 
+\n -I told you, didn't I? You're not coming home with me. I live alone! 
 
-orge. It's not like it has feelings.
+\n My swamp! Me! Nobody else! Understand? Nobody! Especially useless, 
 
--No, you're right. It doesn't.
+\n pathetic, annoying, talking donkeys!
 
--Princess Fiona, beautiful, fair, flawerss Fiona. I ask your hand in 
+\n -But I thought - - 
 
-marriage.
+\n -Yeah. You know what? You tought wrong!
 
-{Gasps}
+\n -Shrek.
 
--Will you be the perfect bride for the perfect groom?
+\n 
 
--Lord Farquaad, I accept. Nothing would make - - 
+\n I heard there was a secret chord
 
--Excellent! I'll start the plans, for tomorrow we wed!
+\n That David played and it pleased the Lord
 
--No! I mean, uh, why wait? Let's get married today before the sun 
+\n But you don't really care for music, do ya
 
-sets.
+\n It goes like this the fourth, the fifth
 
--Oh, anxious, are you? You're right. The sooner, the better. There's 
+\n The minor fall the major lift
 
-so much to do! Threre's the caterer, the cake, the band, the guest 
+\n The baffled king composing hallelujah
 
-list. Captain, round up some guests!
+\n Hallelujah,  hallelujah
 
--Fare-thee-well, orge.
+\n Baby, I've been here before
 
--Shrek, what are you doing? You're letting her get away.
+\n I know this room I've walked this floor
 
--Yeah? So what?
+\n I used to live alone before I knew you
 
--Shrek, there's something about her you don't know. Look, I talked to 
+\n I've seen your flag on the marble arch
 
-her last night, She's - - 
+\n But love is not a victory march
 
--I know you talked to her last night. You're great pals, aren't ya? 
+\n It's a cold and it's a broken hallelujah
 
-Now, if you two are such good friends, why don't you follow her home?
+\n Hallelujah,  hallelujah
 
--Shrek, I - - I wanna go with you.
+\n And all I ever learned from love
 
--I told you, didn't I? You're not coming home with me. I live alone! 
+\n Is how to shoot at someone
 
-My swamp! Me! Nobody else! Understand? Nobody! Especially useless, 
+\n Who outdrew you
 
-pathetic, annoying, talking donkeys!
+\n {Moaning}
 
--But I thought - - 
+\n And it's not a cry you can hear at night
 
--Yeah. You know what? You tought wrong!
+\n It's not somebody who's seen the light
 
--Shrek.
+\n It's a cold and it's a broken hallelujah
 
+\n {Moaning}
 
+\n Hallelujah,  hallelujah
 
-I heard there was a secret chord
+\n 
 
-That David played and it pleased the Lord
+\n {Thumping sound}
 
-But you don't really care for music, do ya
+\n -Donkey?
 
-It goes like this the fourth, the fifth
+\n {Grunts}
 
-The minor fall the major lift
+\n -What are you doing?
 
-The baffled king composing hallelujah
+\n -I would think, of all people, you would recognize a wall when you see 
 
-Hallelujah,  hallelujah
+\n one.
 
-Baby, I've been here before
+\n -Well, yeah. But the wall's supposed to go around my swamp, not 
 
-I know this room I've walked this floor
+\n through it.
 
-I used to live alone before I knew you
+\n -It is around your half. See that's your half, and this is my half.
 
-I've seen your flag on the marble arch
+\n -Oh! Your half. Hmm.
 
-But love is not a victory march
+\n -Yes, my half. I helped rescue the princess. I did half the work. I 
 
-It's a cold and it's a broken hallelujah
+\n get half the booty. Now hand me that big old rock, the one that looks 
 
-Hallelujah,  hallelujah
+\n like your head.
 
-And all I ever learned from love
+\n -Back off!
 
-Is how to shoot at someone
+\n -No, you back off.
 
-Who outdrew you
+\n -This is my swamp!
 
-{Moaning}
+\n -Our swamp.
 
-And it's not a cry you can hear at night
+\n -Let go, Donkey!
 
-It's not somebody who's seen the light
+\n -You let go.
 
-It's a cold and it's a broken hallelujah
+\n -Stubborn jackass!
 
-{Moaning}
+\n -Smelly orge.
 
-Hallelujah,  hallelujah
+\n -Fine!
 
+\n -Hey, hey, come back here. I'm not through with you yet.
 
+\n -Well, I'm through with you.
 
-{Thumping sound}
+\n -Uh-uh. You know, with you it's always, "Me, me, me!" Well, guess 
 
--Donkey?
+\n what! Now it's my turn! So you just shut up and pay attention! You are 
 
-{Grunts}
+\n mean to me. You insult me and you don't appreciate anything that I do! 
 
--What are you doing?
+\n You're always pushing me around or pushing me away.
 
--I would think, of all people, you would recognize a wall when you see 
+\n -Oh, yeah? Well, if I treated you so bad, how come you came back?
 
-one.
+\n -Because that's what friends do! They forgive each other!
 
--Well, yeah. But the wall's supposed to go around my swamp, not 
+\n -Oh, yeah. You're right, Donkey. I forgive you... for stabbin' me in 
 
-through it.
+\n the back!
 
--It is around your half. See that's your half, and this is my half.
+\n -Ohh! You're so wrapped up in layers, onion boy, you're afraid of your 
 
--Oh! Your half. Hmm.
+\n own feelings.
 
--Yes, my half. I helped rescue the princess. I did half the work. I 
+\n -Go away!
 
-get half the booty. Now hand me that big old rock, the one that looks 
+\n -There you are , doing it again just like you did to Fiona. All she 
 
-like your head.
+\n ever do was like you, maybe even love you.
 
--Back off!
+\n -Love me? She said I was ugly, a hideous creature. I heard the two of 
 
--No, you back off.
+\n you talking. 
 
--This is my swamp!
+\n -She wasn't talkin' about you. She was talkin' about, uh, somebody 
 
--Our swamp.
+\n else.
 
--Let go, Donkey!
+\n -She wasn't talking about me? Well, then who was she talking about?
 
--You let go.
+\n -Uh-uh, no way. I ain't saying anything. You don't wanna listen to me. 
 
--Stubborn jackass!
+\n Right? Right?
 
--Smelly orge.
+\n -Donkey!
 
--Fine!
+\n -No!
 
--Hey, hey, come back here. I'm not through with you yet.
+\n -Okay, look. I'm sorry, all right?
 
--Well, I'm through with you.
+\n {Sighs}
 
--Uh-uh. You know, with you it's always, "Me, me, me!" Well, guess 
+\n -I'm sorry. I guess I am just a big, stupid, ugly orge. Can you 
 
-what! Now it's my turn! So you just shut up and pay attention! You are 
+\n forgive me?
 
-mean to me. You insult me and you don't appreciate anything that I do! 
+\n -Hey, that's what friends are for, right?
 
-You're always pushing me around or pushing me away.
+\n -Right. Friends?
 
--Oh, yeah? Well, if I treated you so bad, how come you came back?
+\n -Friends.
 
--Because that's what friends do! They forgive each other!
+\n -So, um, what did Fiona say about me?
 
--Oh, yeah. You're right, Donkey. I forgive you... for stabbin' me in 
+\n -What are you asking me for? Why don't you just go ask her?
 
-the back!
+\n -The wedding! We'll never make it in time.
 
--Ohh! You're so wrapped up in layers, onion boy, you're afraid of your 
+\n -Ha-ha-ha! Never fear, for where, there's a will, there's a way and I 
 
-own feelings.
+\n have a way.
 
--Go away!
+\n {Whistles}
 
--There you are , doing it again just like you did to Fiona. All she 
+\n -Donkey?
 
-ever do was like you, maybe even love you.
+\n -I guess it's just my animal magnetism.
 
--Love me? She said I was ugly, a hideous creature. I heard the two of 
+\n {Laughing}
 
-you talking. 
+\n -Aw, come here, you.
 
--She wasn't talkin' about you. She was talkin' about, uh, somebody 
+\n -All right, all right.Don't get all slobbery. No one likes a kiss ass. 
 
-else.
+\n All right, hop on and hold on tight. I haven't had a chance to install 
 
--She wasn't talking about me? Well, then who was she talking about?
+\n the seat belts yet.
 
--Uh-uh, no way. I ain't saying anything. You don't wanna listen to me. 
+\n -Whoo!
 
-Right? Right?
+\n {Bells tolling}
 
--Donkey!
+\n {All gasping}
 
--No!
+\n -People of DuLoc, we gather here today to bear witnss to the union....
 
--Okay, look. I'm sorry, all right?
+\n -Um-
 
-{Sighs}
+\n -of our new king - -
 
--I'm sorry. I guess I am just a big, stupid, ugly orge. Can you 
+\n -Excuse me. Could we just skip ahead to the "I do's"?
 
-forgive me?
+\n {Chuckling}
 
--Hey, that's what friends are for, right?
+\n -Go on.
 
--Right. Friends?
+\n -Go ahead, HAVE SOME FUN. If we need you, I'll whistle. How about 
 
--Friends.
+\n that? Shrek, wait, wait! Wait a minute! You wanna do this right, don't 
 
--So, um, what did Fiona say about me?
+\n you?
 
--What are you asking me for? Why don't you just go ask her?
+\n -What are you talking about?
 
--The wedding! We'll never make it in time.
+\n -There's a line you gotta wait for. The preacher's gonna say, "Speak 
 
--Ha-ha-ha! Never fear, for where, there's a will, there's a way and I 
+\n now or forever hold your peace." That's when you say, "I object!"
 
-have a way.
+\n -I don't have time for this!
 
-{Whistles}
+\n -Hey, wait. What are you doing? Listen to me! Look, you love this 
 
--Donkey?
+\n woman, don't you?
 
--I guess it's just my animal magnetism.
+\n -Yes.
 
-{Laughing}
+\n -You wanna hold her?
 
--Aw, come here, you.
+\n -Yes.
 
--All right, all right.Don't get all slobbery. No one likes a kiss ass. 
+\n -Please her?
 
-All right, hop on and hold on tight. I haven't had a chance to install 
+\n -Yes!
 
-the seat belts yet.
+\n -Then you got to, got to try a little tenderness. The chicks love that 
 
--Whoo!
+\n romantic crap!
 
-{Bells tolling}
+\n -All right! Cut it out. When does this guy say the line?
 
-{All gasping}
+\n -We gotta check it out.
 
--People of DuLoc, we gather here today to bear witnss to the union....
+\n 
 
--Um-
+\n -And so, by the power vested in me, 
 
--of our new king - -
+\n -What do you see?
 
--Excuse me. Could we just skip ahead to the "I do's"?
+\n -The whole town's in there.
 
-{Chuckling}
+\n -I now pronounce you husband and wife,
 
--Go on.
+\n -They're at the altar.
 
--Go ahead, HAVE SOME FUN. If we need you, I'll whistle. How about 
+\n -king and queen.
 
-that? Shrek, wait, wait! Wait a minute! You wanna do this right, don't 
+\n -Mother Fletcher! He already said it.
 
-you?
+\n -Oh, for the love of Pete!
 
--What are you talking about?
+\n {Grunts}
 
--There's a line you gotta wait for. The preacher's gonna say, "Speak 
+\n -I object!
 
-now or forever hold your peace." That's when you say, "I object!"
+\n -Shrek?
 
--I don't have time for this!
+\n {Gasps}
 
--Hey, wait. What are you doing? Listen to me! Look, you love this 
+\n -Oh, now what does he want?
 
-woman, don't you?
+\n -Hi, everyone. Havin' a good time, are ya? I love DuLoc, first at all. 
 
--Yes.
+\n Very clean.
 
--You wanna hold her?
+\n -What are you doing here?
 
--Yes.
+\n -Really, it's rude enough being alive when no one wants you, but 
 
--Please her?
+\n showing up uninvited to a wedding - -
 
--Yes!
+\n -Fiona! I need to talk to you.
 
--Then you got to, got to try a little tenderness. The chicks love that 
+\n -Oh, now you wanna talk? It's a little late for that, so if you'll 
 
-romantic crap!
+\n excuse me - - 
 
--All right! Cut it out. When does this guy say the line?
+\n -But you can't marry him.
 
--We gotta check it out.
+\n -And why not?
 
+\n -Because- - Because he's just marring you so he can be king.
 
+\n -Outrageous! Fiona, don't listen to him.
 
--And so, by the power vested in me, 
+\n -He's not your true love.
 
--What do you see?
+\n -And what do you know about true love?
 
--The whole town's in there.
+\n -Well, I - - Uh - - I mean - - 
 
--I now pronounce you husband and wife,
+\n -Oh, this is precious. The orge has fallen in love with the princess! 
 
--They're at the altar.
+\n Oh, good Lord.
 
--king and queen.
+\n {Crowd laughting}
 
--Mother Fletcher! He already said it.
+\n -An orge and a princess!
 
--Oh, for the love of Pete!
+\n -Shrek, is this true?
 
-{Grunts}
+\n -Who cares? It's preposterous! Fiona, my love, we're but a kiss away 
 
--I object!
+\n from our "happily ever after." Now kiss me! Mmmmm!
 
--Shrek?
+\n -"By night one way, by day another." I wanted to show you before.
 
-{Gasps}
+\n {Whimpers}
 
--Oh, now what does he want?
+\n {Crown gasping}
 
--Hi, everyone. Havin' a good time, are ya? I love DuLoc, first at all. 
+\n -Well, uh, that explains a lot.
 
-Very clean.
+\n -Ugh! It's disgusting! Guards! Guards! I order you to get that out of 
 
--What are you doing here?
+\n my sight now! Get them! Get them both!
 
--Really, it's rude enough being alive when no one wants you, but 
+\n -No, no!
 
-showing up uninvited to a wedding - -
+\n -Shrek!
 
--Fiona! I need to talk to you.
+\n -This hocus-pocus alters nothing. This marriage is binding, and that 
 
--Oh, now you wanna talk? It's a little late for that, so if you'll 
+\n makes me king! See? See?
 
-excuse me - - 
+\n -No, let go of me! Shrek!
 
--But you can't marry him.
+\n -No!
 
--And why not?
+\n -Don't just stand there, you morons.
 
--Because- - Because he's just marring you so he can be king.
+\n -Get out of my way! Fiona! Arrgh! 
 
--Outrageous! Fiona, don't listen to him.
+\n -I'll make you regret the day we met. I'll see you drawn and 
 
--He's not your true love.
+\n quartered!
 
--And what do you know about true love?
+\n -You'll beg for death to save you!
 
--Well, I - - Uh - - I mean - - 
+\n -No, Shrek!
 
--Oh, this is precious. The orge has fallen in love with the princess! 
+\n -And as for you, my wife,
 
-Oh, good Lord.
+\n -Fiona!
 
-{Crowd laughting}
+\n -I'll have you locked back in that tower for the rest of your days!
 
--An orge and a princess!
+\n -I'm king!
 
--Shrek, is this true?
+\n {Whistles}
 
--Who cares? It's preposterous! Fiona, my love, we're but a kiss away 
+\n -I will have order! I will have perfection! I will have - - Aaaah!
 
-from our "happily ever after." Now kiss me! Mmmmm!
+\n -Aah!
 
--"By night one way, by day another." I wanted to show you before.
+\n -All right. Nobody move. I got a dragon here, and I'm not afraid to 
 
-{Whimpers}
+\n use it.
 
-{Crown gasping}
+\n {Roars}
 
--Well, uh, that explains a lot.
+\n -I'm a donkey on the edge!
 
--Ugh! It's disgusting! Guards! Guards! I order you to get that out of 
+\n {Belches}
 
-my sight now! Get them! Get them both!
+\n -Celebrity marriages. They never last, do they?
 
--No, no!
+\n {Cheering}
 
--Shrek!
+\n -Go ahead, Shrek.
 
--This hocus-pocus alters nothing. This marriage is binding, and that 
+\n -Uh, Fiona?
 
-makes me king! See? See?
+\n -Yes, Shrek?
 
--No, let go of me! Shrek!
+\n -I - - I love you.
 
--No!
+\n -Really?
 
--Don't just stand there, you morons.
+\n -Really, really.
 
--Get out of my way! Fiona! Arrgh! 
+\n - I love you too.
 
--I'll make you regret the day we met. I'll see you drawn and 
+\n -Aawww!
 
-quartered!
+\n -"Until you find true love's first kiss and then take love's true 
 
--You'll beg for death to save you!
+\n form."
 
--No, Shrek!
+\n -"Take love's true form. Take love's true form."
 
--And as for you, my wife,
+\n -Fiona? Fiona. Are you all right?
 
--Fiona!
+\n -Well, yes. But I don't understand. I'm supposed to be beautiful.
 
--I'll have you locked back in that tower for the rest of your days!
+\n -But you ARE beautiful.
 
--I'm king!
+\n {Chuckles}
 
-{Whistles}
+\n -I was hoping this would be a happy ending.
 
--I will have order! I will have perfection! I will have - - Aaaah!
+\n 
 
--Aah!
+\n I thought love was only true in fairy tales
 
--All right. Nobody move. I got a dragon here, and I'm not afraid to 
+\n Oy!
 
-use it.
+\n Meant for someone else but not for me
 
-{Roars}
+\n Love was out to get me
 
--I'm a donkey on the edge!
+\n That's the way it seemed
 
-{Belches}
+\n Disappointment haunted all my dreams
 
--Celebrity marriages. They never last, do they?
+\n And then I saw her face
 
-{Cheering}
+\n Now I'm a believer and not a trace
 
--Go ahead, Shrek.
+\n Of doubt in my mind
 
--Uh, Fiona?
+\n I'm in love
 
--Yes, Shrek?
+\n Ooh-aah
 
--I - - I love you.
+\n I'm a believer I couldn't leave her
 
--Really?
+\n If I tried
 
--Really, really.
+\n 
 
-- I love you too.
+\n -God bless us, every one.
 
--Aawww!
+\n 
 
--"Until you find true love's first kiss and then take love's true 
+\n Come on, y'all!
 
-form."
+\n Then I saw her face
 
--"Take love's true form. Take love's true form."
+\n Ha-ha
 
--Fiona? Fiona. Are you all right?
+\n Now I'm a believer 
 
--Well, yes. But I don't understand. I'm supposed to be beautiful.
+\n Listen!
 
--But you ARE beautiful.
+\n Not a trace
 
-{Chuckles}
+\n Of doubt in my mind
 
--I was hoping this would be a happy ending.
+\n I'm in love
 
+\n Ooh-aah
 
+\n I'm a believer 
 
-I thought love was only true in fairy tales
+\n I couldn't leave her if I tried
 
-Oy!
+\n -Ooh!
 
-Meant for someone else but not for me
+\n -Uh!
 
-Love was out to get me
+\n Then I saw her face
 
-That's the way it seemed
+\n Now I'm a believer 
 
-Disappointment haunted all my dreams
+\n Hey!
 
-And then I saw her face
+\n Not a trace
 
-Now I'm a believer and not a trace
+\n Uhh! Yeah.
 
-Of doubt in my mind
+\n Of doubt in my mind
 
-I'm in love
+\n 
 
-Ooh-aah
+\n -One more time!
 
-I'm a believer I couldn't leave her
+\n I'm in love
 
-If I tried
+\n I'm a believer 
 
+\n Come on!
 
+\n I believe, I believe, I believe, I believe, 
 
--God bless us, every one.
+\n I believe, I believe, I believe, I believe, I believe, hey
 
+\n Y'all sing it with me!
 
+\n I
 
-Come on, y'all!
+\n Believe
 
-Then I saw her face
+\n I believe
 
-Ha-ha
+\n People in the back!
 
-Now I'm a believer 
+\n I believe
 
-Listen!
+\n I'm a believer 
 
-Not a trace
+\n I believe
 
-Of doubt in my mind
+\n I believe
 
-I'm in love
+\n I believe
 
-Ooh-aah
+\n I believe
 
-I'm a believer 
+\n {Hysterical laughing}
 
-I couldn't leave her if I tried
+\n -Oh, that's funny. Oh. Oh.
 
--Ooh!
+\n -I can't breathe. I can't breathe. 
 
--Uh!
+\n 
 
-Then I saw her face
+\n I believe in self-assertion
 
-Now I'm a believer 
+\n Destiny or a slight diversion
 
-Hey!
+\n Now it seems I've got my head on straight
 
-Not a trace
+\n I'm a freak an apparition
 
-Uhh! Yeah.
+\n Seems I've made the right decision
 
-Of doubt in my mind
+\n To try to turn back now it might be too late
 
+\n 
 
+\n Now I want to stay home today
 
--One more time!
+\n Don't wanna go out
 
-I'm in love
+\n If anyone comes to play
 
-I'm a believer 
+\n Gonna get thrown out
 
-Come on!
+\n I wanna stay home today
 
-I believe, I believe, I believe, I believe, 
+\n Don't want no company
 
-I believe, I believe, I believe, I believe, I believe, hey
+\n No way
 
-Y'all sing it with me!
+\n Yeah, yeah, yeah
 
-I
+\n 
 
-Believe
+\n I wanna be a millionaire someday
 
-I believe
+\n But know what it feels like to give it away
 
-People in the back!
+\n Watch me march to the beat of my own drum
 
-I believe
+\n And it's off to the moon and then back again
 
-I'm a believer 
+\n Same old day Same situation
 
-I believe
+\n My happiness rears back as if to say
 
-I believe
+\n 
 
-I believe
+\n I wanna stay home today
 
-I believe
+\n Don't wanna go out
 
-{Hysterical laughing}
+\n If anyone comes to play
 
--Oh, that's funny. Oh. Oh.
+\n Gonna get thrown out
 
--I can't breathe. I can't breathe. 
+\n I wanna stay home today
 
+\n Don't want no company
 
+\n No way
 
-I believe in self-assertion
+\n Yeah, yeah, yeah
 
-Destiny or a slight diversion
+\n 
 
-Now it seems I've got my head on straight
+\n I wanna stay home, stay home, stay home.........
 
-I'm a freak an apparition
+\n 
 
-Seems I've made the right decision
+\n 
 
-To try to turn back now it might be too late
+\n I get such a thrill when you look in my eyes
 
+\n My heart skips a beat
 
+\n Girl, I feel so alive
 
-Now I want to stay home today
+\n Please tell me, baby, if all this is true
 
-Don't wanna go out
+\n 'Cause deep down inside all I wanted was you
 
-If anyone comes to play
+\n Oh-oh-oh
 
-Gonna get thrown out
+\n Makes me wanna dance
 
-I wanna stay home today
+\n Oh-oh-oh
 
-Don't want no company
+\n It's a new romance
 
-No way
+\n Oh-oh-oh
 
-Yeah, yeah, yeah
+\n I look into your eyes
 
+\n Oh-oh-oh
 
+\n The best years of our lives
 
-I wanna be a millionaire someday
+\n When we first met
 
-But know what it feels like to give it away
+\n I could hardly believe
 
-Watch me march to the beat of my own drum
+\n The things that would happen 
 
-And it's off to the moon and then back again
+\n and we could achieve
 
-Same old day Same situation
+\n So let's be together
 
-My happiness rears back as if to say
+\n for all of our time
 
+\n Oh, girl, I'm so thankful
 
+\n that you are still mine
 
-I wanna stay home today
+\n You always consider me
 
-Don't wanna go out
+\n like an ugly duckling
 
-If anyone comes to play
+\n And treat me like a Nostradamus
 
-Gonna get thrown out
+\n was why I had to get my shine on
 
-I wanna stay home today
+\n I break a little something
 
-Don't want no company
+\n to keep my mind on
 
-No way
+\n 'Cause you had my mind gone
 
-Yeah, yeah, yeah
+\n Eh-eh, eh-eh, eh-eh
 
+\n Turn the lights on, Come on, baby
 
+\n Let's just rewind the song
 
-I wanna stay home, stay home, stay home.........
+\n 'Cause all I want to do is 
 
+\n make the rest years the best years
 
+\n All night long
 
+\n 
 
+\n Oh-oh-oh
 
-I get such a thrill when you look in my eyes
+\n Makes me wanna dance
 
-My heart skips a beat
+\n Makes me wanna dance
 
-Girl, I feel so alive
+\n Oh-oh-oh
 
-Please tell me, baby, if all this is true
+\n It's a new romance
 
-'Cause deep down inside all I wanted was you
+\n It's a new romance
 
-Oh-oh-oh
+\n Oh-oh-oh
 
-Makes me wanna dance
+\n I look into your eyes
 
-Oh-oh-oh
+\n Oh, yeah, yeah
 
-It's a new romance
+\n I look into your eyes
 
-Oh-oh-oh
+\n Oh-oh-oh
 
-I look into your eyes
+\n The best years of our lives
 
-Oh-oh-oh
+\n Yeah, yeah, yeah, yeah..............
 
-The best years of our lives
+\n 
 
-When we first met
+\n 
 
-I could hardly believe
+\n Everything looks bright
 
-The things that would happen 
+\n Standing in your light
 
-and we could achieve
+\n Everything feels right
 
-So let's be together
+\n What's left is out of sight
 
-for all of our time
+\n What's a girl to do 
 
-Oh, girl, I'm so thankful
+\n I'm telling you
 
-that you are still mine
+\n You're on my mind
 
-You always consider me
+\n I wanna be with you
 
-like an ugly duckling
+\n 'Cause when you're
 
-And treat me like a Nostradamus
+\n standin' next to me
 
-was why I had to get my shine on
+\n It's like wow
 
-I break a little something
+\n And all your kisses
 
-to keep my mind on
+\n seem to set me free
 
-'Cause you had my mind gone
+\n It's like wow
 
-Eh-eh, eh-eh, eh-eh
+\n And when we touch
 
-Turn the lights on, Come on, baby
+\n it's such a rush
 
-Let's just rewind the song
+\n I can't get enough
 
-'Cause all I want to do is 
+\n It's like- - It's like
 
-make the rest years the best years
+\n Ooh-ooh
 
-All night long
+\n Hey, what
 
+\n It's like wow
 
+\n Ooh-ooh, hey
 
-Oh-oh-oh
+\n Hey, yeah
 
-Makes me wanna dance
+\n It's like wow
 
-Makes me wanna dance
+\n Everything is looking
 
-Oh-oh-oh
+\n right now, right now
 
-It's a new romance
+\n It's like wow
 
-It's a new romance
+\n And I got this feeling
 
-Oh-oh-oh
+\n This feeling 
 
-I look into your eyes
+\n it's just like wow
 
-Oh, yeah, yeah
+\n It's just like wow
 
-I look into your eyes
+\n You are all I'm thinking of.
 
-Oh-oh-oh
+\n Like wow
 
-The best years of our lives
+\n Everything feels right
 
-Yeah, yeah, yeah, yeah..............
+\n Everything feels right
 
+\n Like wow
 
+\n Everything looks bright
 
+\n All my senses are right
 
+\n Like wow
 
-Everything looks bright
+\n Everything feels right
 
-Standing in your light
+\n Baby, baby, baby
 
-Everything feels right
+\n the way I'm feeling you
 
-What's left is out of sight
+\n Is like wow
 
-What's a girl to do 
+\n 
 
-I'm telling you
+\n There is something
 
-You're on my mind
+\n that I see
 
-I wanna be with you
+\n In the way 
 
-'Cause when you're
+\n you look at me
 
-standin' next to me
+\n There's a smile
 
-It's like wow
+\n There's a truth
 
-And all your kisses
+\n In your eyes
 
-seem to set me free
+\n What an unexpected way
 
-It's like wow
+\n On this unexpected day
 
-And when we touch
+\n Could it be
 
-it's such a rush
+\n This is where I belong
 
-I can't get enough
+\n It is you I have loved
 
-It's like- - It's like
+\n All long
 
-Ooh-ooh
+\n There's no more mystery
 
-Hey, what
+\n It is finally clear to me
 
-It's like wow
+\n You're the home
 
-Ooh-ooh, hey
+\n my heart's searched for
 
-Hey, yeah
+\n So long
 
-It's like wow
+\n It is you I have loved
 
-Everything is looking
+\n All long
 
-right now, right now
+\n Whoa, over and over
 
-It's like wow
+\n I'm filled with emotion
 
-And I got this feeling
+\n As I look
 
-This feeling 
-
-it's just like wow
-
-It's just like wow
-
-You are all I'm thinking of.
-
-Like wow
-
-Everything feels right
-
-Everything feels right
-
-Like wow
-
-Everything looks bright
-
-All my senses are right
-
-Like wow
-
-Everything feels right
-
-Baby, baby, baby
-
-the way I'm feeling you
-
-Is like wow
-
-
-
-There is something
-
-that I see
-
-In the way 
-
-you look at me
-
-There's a smile
-
-There's a truth
-
-In your eyes
-
-What an unexpected way
-
-On this unexpected day
-
-Could it be
-
-This is where I belong
-
-It is you I have loved
-
-All long
-
-There's no more mystery
-
-It is finally clear to me
-
-You're the home
-
-my heart's searched for
-
-So long
-
-It is you I have loved
-
-All long
-
-Whoa, over and over
-
-I'm filled with emotion
-
-As I look
-
-Into your perfect face"}
+\n Into your perfect face"}
