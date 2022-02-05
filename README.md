@@ -38,1007 +38,1007 @@ tower for her true love and true love's first kiss.
 
 \n Fed to the rules and hit the ground runnin'
 
-Didn't make sense not to live for fun
+\n Didn't make sense not to live for fun
 
-Your brain gets smart but your head gets dumb
+\n Your brain gets smart but your head gets dumb
 
-So much to do so much to see
+\n So much to do so much to see
 
-So what's wrong with takin' the backstreets
+\n So what's wrong with takin' the backstreets
 
-You'll never know if you don't go
+\n You'll never know if you don't go
 
-You'll never shine if you don't glow
+\n You'll never shine if you don't glow
 
-Hey, now You're an all-star
+\n Hey, now You're an all-star
 
-Get your game on, go play
+\n Get your game on, go play
 
-Hey, now You're a rock star
+\n Hey, now You're a rock star
 
-Get the show on, get paid
+\n Get the show on, get paid
 
-And all that glitters is gold
+\n And all that glitters is gold
 
-Only shootin' stars break the mold
+\n Only shootin' stars break the mold
 
-It's a cool place and they say it gets colder
+\n It's a cool place and they say it gets colder
 
-You're bundled up now but wait till you get older
+\n You're bundled up now but wait till you get older
 
-But the meteor men beg to differ
+\n But the meteor men beg to differ
 
-Judging by the hole in the satellite picture
+\n Judging by the hole in the satellite picture
 
-The ice we skate is gettin' pretty thin
+\n The ice we skate is gettin' pretty thin
 
-The water's getting warm so you might as well swim
+\n The water's getting warm so you might as well swim
 
-My world's on fire
+\n My world's on fire
 
-How 'bout yours
+\n How 'bout yours
 
-That's the way I like it and I'll never get bored
+\n That's the way I like it and I'll never get bored
 
-Hey, now, you're an all-star
+\n Hey, now, you're an all-star
 
-{Shouting}
+\n {Shouting}
 
-Get your game on, go play
+\n Get your game on, go play
 
-Hey, now You're a rock star
+\n Hey, now You're a rock star
 
-Get the show on, get paid
+\n Get the show on, get paid
 
-And all that glitters is gold
+\n And all that glitters is gold
 
-Only shootin' stars break the mold
+\n Only shootin' stars break the mold
 
-{Belches}
+\n {Belches}
 
-Go!
+\n Go!
 
-Go!
+\n Go!
 
-{Record Scratching}
+\n {Record Scratching}
 
-Go. Go.Go.
+\n Go. Go.Go.
 
-Hey, now, you're an all-star
+\n Hey, now, you're an all-star
 
-Get your game on, go play
+\n Get your game on, go play
 
-Hey, now You're a rock star
+\n Hey, now You're a rock star
 
-Get the show on, get paid
+\n Get the show on, get paid
 
-And all that glitters is gold
+\n And all that glitters is gold
 
-Only shootin' stars break the mold
+\n Only shootin' stars break the mold
 
+\n 
 
+\n -Think it's in there?
 
--Think it's in there?
+\n -All right. Let's get it!
 
--All right. Let's get it!
+\n -Whoa. Hold on. Do you know what that thing can do to you?
 
--Whoa. Hold on. Do you know what that thing can do to you?
+\n -Yeah, it'll grind your bones for it's bread.
 
--Yeah, it'll grind your bones for it's bread.
+\n {Laughs}
 
-{Laughs}
+\n -Yes, well, actually, that would be a gaint.
 
--Yes, well, actually, that would be a gaint.
+\n Now, ogres - - They're much worse.
 
-Now, ogres - - They're much worse.
+\n They'll make a suit from your freshly peeled skin.
 
-They'll make a suit from your freshly peeled skin.
+\n -No!
 
--No!
+\n -They'll shave your liver. Squeeze the jelly from your eyes!
 
--They'll shave your liver. Squeeze the jelly from your eyes!
+\n Actually, it's quite good on toast.
 
-Actually, it's quite good on toast.
+\n -Back! Back, beast! Back! I warn ya!
 
--Back! Back, beast! Back! I warn ya!
+\n {Gasping}
 
-{Gasping}
+\n -Right.
 
--Right.
+\n {Roaring}
 
-{Roaring}
+\n {Shouting}
 
-{Shouting}
+\n {Roaring}
 
-{Roaring}
+\n {Whispers} This is the part where you run away.
 
-{Whispers} This is the part where you run away.
+\n {Gasping}
 
-{Gasping}
+\n {Laughs}
 
-{Laughs}
+\n {Laughing} And stay out!
 
-{Laughing} And stay out!
+\n "Wanted. Fairy tale creatures."
 
-"Wanted. Fairy tale creatures."
+\n {Sighs}
 
-{Sighs}
+\n {Man's voice} All right. This one's full.
 
-{Man's voice} All right. This one's full.
+\n -Take it away!
 
--Take it away!
+\n {Gasps}
 
-{Gasps}
+\n -Move it along. Come on! Get up!
 
--Move it along. Come on! Get up!
+\n -Next!
 
--Next!
+\n -Give me that! Your fiying days are over.
 
--Give me that! Your fiying days are over.
+\n That's 20 pieces of silver for the witch. Next!
 
-That's 20 pieces of silver for the witch. Next!
+\n -Get up! Come on!
 
--Get up! Come on!
+\n -Twenty pieces.
 
--Twenty pieces.
+\n {Thudding}
 
-{Thudding}
+\n -Sit down there!
 
--Sit down there!
+\n -Keep quiet!
 
--Keep quiet!
+\n {Crying}
 
-{Crying}
+\n -This cage is too small.
 
--This cage is too small.
+\n -Please, don't turn me in. I'll never be stubborn again.
 
--Please, don't turn me in. I'll never be stubborn again.
+\n I can change. Please! Give me another chance!
 
-I can change. Please! Give me another chance!
+\n -Oh, shut up.
 
--Oh, shut up.
+\n -Oh!
 
--Oh!
+\n -Next!
 
--Next!
+\n -What have you got?
 
--What have you got?
+\n -This little wooden puppet.
 
--This little wooden puppet.
+\n -I'm not a puppet. I'm a real boy.
 
--I'm not a puppet. I'm a real boy.
+\n -Five shillings for the possessed toy. Take it away.
 
--Five shillings for the possessed toy. Take it away.
+\n -Father, please! Don't let them do this!
 
--Father, please! Don't let them do this!
+\n -Help me!
 
--Help me!
+\n -Next! What have you got?
 
--Next! What have you got?
+\n -Well, I've got a talking donkey.
 
--Well, I've got a talking donkey.
+\n {Grunts}
 
-{Grunts}
+\n -Right. Well, that's good for ten shillings, if you can prove it.
 
--Right. Well, that's good for ten shillings, if you can prove it.
+\n -Oh, go ahead, little fella.
 
--Oh, go ahead, little fella.
+\n -Well?
 
--Well?
+\n -Oh, oh, he's just - - He's just a little nervous.
 
--Oh, oh, he's just - - He's just a little nervous.
+\n He's really quite a chatterbox. Talk, you boneheaded dolt - -
 
-He's really quite a chatterbox. Talk, you boneheaded dolt - -
+\n -That's it. I've heard enough. Guards!
 
--That's it. I've heard enough. Guards!
+\n -No, no, he talks! He does. I can talk. I love to talk.
 
--No, no, he talks! He does. I can talk. I love to talk.
+\n I'm the talkingest damn thing you ever saw.
 
-I'm the talkingest damn thing you ever saw.
+\n -Get her out of my sight.
 
--Get her out of my sight.
+\n -No, no! I swear! Oh! He can talk!
 
--No, no! I swear! Oh! He can talk!
+\n {Gasps}
 
-{Gasps}
+\n -Hey! I can fly!
 
--Hey! I can fly!
+\n -He can fly!
 
--He can fly!
+\n -He can fly!
 
--He can fly!
+\n -He can talk!
 
--He can talk!
+\n -Ha, ha! That's right, fool! Now I'm a flying, talking donkey.
 
--Ha, ha! That's right, fool! Now I'm a flying, talking donkey.
+\n You might have seen a housefly, maybe even a superfly
 
-You might have seen a housefly, maybe even a superfly
+\n but I bet you ain't never seen a donkey fly. Ha, ha!
 
-but I bet you ain't never seen a donkey fly. Ha, ha!
+\n Oh-oh.
 
-Oh-oh.
+\n {Grunts}
 
-{Grunts}
+\n -Seize him!
 
--Seize him!
+\n -After him! He's getting away!
 
--After him! He's getting away!
+\n {Grunts, Gasps}
 
-{Grunts, Gasps}
+\n {Man}
 
-{Man}
+\n -Get him! This way! Turn!
 
--Get him! This way! Turn!
+\n -You there. Orge!
 
--You there. Orge!
+\n -Aye?
 
--Aye?
+\n -By the order of Lord Farquaad I am authorized to place you both under 
 
--By the order of Lord Farquaad I am authorized to place you both under 
+\n arrest
 
-arrest
+\n and transport you to a designated..... resettlement facility.
 
-and transport you to a designated..... resettlement facility.
+\n -Oh, really? You and what army?
 
--Oh, really? You and what army?
+\n {Gasps, Whimpering}
 
-{Gasps, Whimpering}
+\n {Chuckles}
 
-{Chuckles}
+\n -Can I say something to you?
 
--Can I say something to you?
+\n -Listen, you was really, really, really somethin' back here. 
 
--Listen, you was really, really, really somethin' back here. 
+\n Incredible!
 
-Incredible!
+\n Are you talkin' to - - me? Whoa!
 
-Are you talkin' to - - me? Whoa!
+\n -Yes. I was talkin' to you. Can I tell you that you that you was great 
 
--Yes. I was talkin' to you. Can I tell you that you that you was great 
+\n back here? Those guards!
 
-back here? Those guards!
+\n They thought they was all of that. Then you showed up, and bam! They 
 
-They thought they was all of that. Then you showed up, and bam! They 
+\n was trippin' over themselves like babes in the woods. That really made 
 
-was trippin' over themselves like babes in the woods. That really made 
+\n me feel good to see that.
 
-me feel good to see that.
+\n -Oh, that's great. Really.
 
--Oh, that's great. Really.
+\n -Man, it's good to be free.
 
--Man, it's good to be free.
+\n -Now, why don't you go celebrate your freedom with your own friends? 
 
--Now, why don't you go celebrate your freedom with your own friends? 
+\n Hmm?
 
-Hmm?
+\n -But, uh, I don't have any friends. And I'm not goin' out there by 
 
--But, uh, I don't have any friends. And I'm not goin' out there by 
+\n myself. Hey, wait a minute! I got a great idea! I'll stick with you. 
 
-myself. Hey, wait a minute! I got a great idea! I'll stick with you. 
+\n You're mean, green, fightin' machine. Together we'll scare the spit 
 
-You're mean, green, fightin' machine. Together we'll scare the spit 
+\n out of anybody that crosses us.
 
-out of anybody that crosses us.
+\n {Roaring}
 
-{Roaring}
+\n -Oh, wow! That was really scary. If you don't mind me sayin', if that 
 
--Oh, wow! That was really scary. If you don't mind me sayin', if that 
+\n don't work, your breath certainly will get the job done, 'cause you 
 
-don't work, your breath certainly will get the job done, 'cause you 
+\n definitely need some Tic Tacs or something, 'cause you breath stinks!
 
-definitely need some Tic Tacs or something, 'cause you breath stinks!
+\n You almost burned the hair outta my nose, just like the time - - 
 
-You almost burned the hair outta my nose, just like the time - - 
+\n {Mumbling}
 
-{Mumbling}
+\n Than I ate some rotten berries. I had strong gases eking out of my 
 
-Than I ate some rotten berries. I had strong gases eking out of my 
+\n butt that day.
 
-butt that day.
+\n -Why are you following me?
 
--Why are you following me?
+\n -I'll tell you why. 
 
--I'll tell you why. 
+\n 
 
+\n 'Cause I'm all alone
 
+\n There's no one here beside me
 
-'Cause I'm all alone
+\n My promlems have all gone
 
-There's no one here beside me
+\n There's no one to deride me
 
-My promlems have all gone
+\n But you gotta heve friends - - 
 
-There's no one to deride me
+\n 
 
-But you gotta heve friends - - 
+\n -Stop singing! It's no wonder you don't have any friends.
 
+\n -Wow. Only a true friend would be that cruelly honest.
 
+\n -Listen, little donkey. Take a look at me. What am I?
 
--Stop singing! It's no wonder you don't have any friends.
+\n -Uh - - Really tall?
 
--Wow. Only a true friend would be that cruelly honest.
+\n -No! I'm an orge! You know. "Grab your torch and pitchforks." Doesn't 
 
--Listen, little donkey. Take a look at me. What am I?
+\n that bother you?
 
--Uh - - Really tall?
+\n -Nope.
 
--No! I'm an orge! You know. "Grab your torch and pitchforks." Doesn't 
+\n -Really?
 
-that bother you?
+\n -Really, really.
 
--Nope.
+\n -Oh.
 
--Really?
+\n -Man, I like you. What's you name?
 
--Really, really.
+\n -Uh, Shrek.
 
--Oh.
+\n -Shrek? Well, you know what I like about you, Shrek?
 
--Man, I like you. What's you name?
+\n You got that kind of I-don't-care-what-nobody-thinks-of-me thing.
 
--Uh, Shrek.
+\n I like that. I respect that, Shrek. You all right. Whoo! Look at that. 
 
--Shrek? Well, you know what I like about you, Shrek?
+\n Who'd want to live in place like that?
 
-You got that kind of I-don't-care-what-nobody-thinks-of-me thing.
+\n -That would be my home.
 
-I like that. I respect that, Shrek. You all right. Whoo! Look at that. 
+\n -Oh! And it is lovely! Just beautiful. You know you are quite a 
 
-Who'd want to live in place like that?
+\n decorator. It's amazing what you've done with such a modest budget. I 
 
--That would be my home.
+\n like that boulder. That is a nice boulder.
 
--Oh! And it is lovely! Just beautiful. You know you are quite a 
+\n -I guess you don't entertain much, do you?
 
-decorator. It's amazing what you've done with such a modest budget. I 
+\n -I like my privacy.
 
-like that boulder. That is a nice boulder.
+\n -You know, I do too. That's another thing we have in common. Like I 
 
--I guess you don't entertain much, do you?
+\n hate it when you got somebody in your face. You've trying to give them 
 
--I like my privacy.
+\n a hint, and they won't leave. There's that awkward silence.
 
--You know, I do too. That's another thing we have in common. Like I 
+\n -Can I stay with you?
 
-hate it when you got somebody in your face. You've trying to give them 
+\n -Uh, what?
 
-a hint, and they won't leave. There's that awkward silence.
+\n -Can I stay with you, please?
 
--Can I stay with you?
+\n -Of course!
 
--Uh, what?
+\n -Really?
 
--Can I stay with you, please?
+\n -No.
 
--Of course!
+\n -Please! I don't wanna go back there! You don't know what it's like to 
 
--Really?
+\n be considered a freak. Well, maybe you do. But that's why we gotta 
 
--No.
+\n stick together. You gotta let me stay! Please! Please!
 
--Please! I don't wanna go back there! You don't know what it's like to 
+\n -Okay! Okay! But one night only.
 
-be considered a freak. Well, maybe you do. But that's why we gotta 
+\n -Ah! Thank you!
 
-stick together. You gotta let me stay! Please! Please!
+\n -What are you - - No! No!
 
--Okay! Okay! But one night only.
+\n -This is gonna be fun! We can stay up late, swappin' manly stories, 
 
--Ah! Thank you!
+\n and in the mornin' I'm makin' waffles.
 
--What are you - - No! No!
+\n -Oh!
 
--This is gonna be fun! We can stay up late, swappin' manly stories, 
+\n -Where do, uh, I sleep?
 
-and in the mornin' I'm makin' waffles.
+\n -Outside!
 
--Oh!
+\n -Oh, well. I guess that's cool. I mean, I don't know you, and you 
 
--Where do, uh, I sleep?
+\n don't know me, so I guess outside is best, you know.
 
--Outside!
+\n {Sniffles}
 
--Oh, well. I guess that's cool. I mean, I don't know you, and you 
+\n -Here I go.
 
-don't know me, so I guess outside is best, you know.
+\n -Good night.
 
-{Sniffles}
+\n {Sighs}
 
--Here I go.
+\n -I mean, I do like the outdoors. I'm a donkey. I was born outside. 
 
--Good night.
+\n I'll just be sitting by myself outside, I guess, you know. By myself, 
 
-{Sighs}
+\n outside.
 
--I mean, I do like the outdoors. I'm a donkey. I was born outside. 
+\n 
 
-I'll just be sitting by myself outside, I guess, you know. By myself, 
+\n I'm all alone
 
-outside.
+\n There's no one here beside me
 
+\n {Bubbling}
 
+\n {Sighs}
 
-I'm all alone
+\n {Creaking}
 
-There's no one here beside me
+\n {Sighs}
 
-{Bubbling}
+\n -I thought I told you to stay outside.
 
-{Sighs}
+\n -I'm outside.
 
-{Creaking}
+\n {Clattering}
 
-{Sighs}
+\n -Well, gents, it's a far cry from the farm, but what choice do we 
 
--I thought I told you to stay outside.
+\n have? 
 
--I'm outside.
+\n -It's not home, but it'll do just fune.
 
-{Clattering}
+\n -What a lovely bed.
 
--Well, gents, it's a far cry from the farm, but what choice do we 
+\n -Got ya.
 
-have? 
+\n {Sniffs} I found some cheese.
 
--It's not home, but it'll do just fune.
+\n -Ow! {Grunts}
 
--What a lovely bed.
+\n -Blah! Awful stuff.
 
--Got ya.
+\n -Is that you, Gorder?
 
-{Sniffs} I found some cheese.
+\n -How did you know?
 
--Ow! {Grunts}
+\n -Enough! What are you doing in my house?
 
--Blah! Awful stuff.
+\n {Grunts}
 
--Is that you, Gorder?
+\n -Hey!
 
--How did you know?
+\n {Snickers}
 
--Enough! What are you doing in my house?
+\n -Oh, no, no, no. Dead broad off the table.
 
-{Grunts}
+\n -Where are we supposed to put her? The bed's taken.
 
--Hey!
+\n -Huh?
 
-{Snickers}
+\n {Gusps}
 
--Oh, no, no, no. Dead broad off the table.
+\n {Male voice} What?
 
--Where are we supposed to put her? The bed's taken.
+\n -I live in a swamp. I put up signs. I'm a terrifying orge! What do I 
 
--Huh?
+\n have to do get a little privacy?
 
-{Gusps}
+\n -Aah!
 
-{Male voice} What?
+\n -Oh, no. No! No!
 
--I live in a swamp. I put up signs. I'm a terrifying orge! What do I 
+\n {Cackling}
 
-have to do get a little privacy?
+\n -What?
 
--Aah!
+\n -Quit it.
 
--Oh, no. No! No!
+\n -Don't push.
 
-{Cackling}
+\n {Squeaking}
 
--What?
+\n {Lows}
 
--Quit it.
+\n - What are you doing in my swamp?
 
--Don't push.
+\n {Echoing}
 
-{Squeaking}
+\n Swamp! Swamp! Swamp!
 
-{Lows}
+\n {Gasping}
 
-- What are you doing in my swamp?
+\n -Oh, dear!
 
-{Echoing}
+\n -Whoa!
 
-Swamp! Swamp! Swamp!
+\n -All right, get out of here. All of you, move it! Come on! Let's go! 
 
-{Gasping}
+\n Hapaya! Hapaya! Hey!
 
--Oh, dear!
+\n -Quickly. Come on!
 
--Whoa!
+\n -No, no! No, no. Not there. Not there.
 
--All right, get out of here. All of you, move it! Come on! Let's go! 
+\n -Oh!
 
-Hapaya! Hapaya! Hey!
+\n {Sighs}
 
--Quickly. Come on!
+\n -Hey, don't look at me. I didn't invite them.
 
--No, no! No, no. Not there. Not there.
+\n -Oh, gosh, no one invited us.
 
--Oh!
+\n -What?
 
-{Sighs}
+\n -We were forced to come here.
 
--Hey, don't look at me. I didn't invite them.
+\n -By who?
 
--Oh, gosh, no one invited us.
+\n -Lord Farquaad.
 
--What?
+\n -He huffed und he puffed und he...... signed an eviction notice.
 
--We were forced to come here.
+\n {Sighs}
 
--By who?
+\n -All right. Who knows where this Farquaad guy is?
 
--Lord Farquaad.
+\n {Murmuring}
 
--He huffed und he puffed und he...... signed an eviction notice.
+\n -Oh, I do. I know where he is.
 
-{Sighs}
+\n -Does anyone else know where to find him? Anyone at all?
 
--All right. Who knows where this Farquaad guy is?
+\n -Me! Me!
 
-{Murmuring}
+\n -Anyone?
 
--Oh, I do. I know where he is.
+\n -Oh! Oh, pick me! Oh, I know! I know! Me, me!
 
--Does anyone else know where to find him? Anyone at all?
+\n {Sighs}
 
--Me! Me!
+\n -Okay, fine. Attention, all fairy tale things. Do not get comfortable. 
 
--Anyone?
+\n Your welcome is officially worn out. In fact, I'm gonna see this guy 
 
--Oh! Oh, pick me! Oh, I know! I know! Me, me!
+\n Farquaad right now and get you all off my land and back where you came 
 
-{Sighs}
+\n from!
 
--Okay, fine. Attention, all fairy tale things. Do not get comfortable. 
+\n {Cheering}
 
-Your welcome is officially worn out. In fact, I'm gonna see this guy 
+\n {Twittering}
 
-Farquaad right now and get you all off my land and back where you came 
+\n -Oh! You! You're comin' with me.
 
-from!
+\n - All right, that's what I like to hear, man. Shrek and Donkey, two 
 
-{Cheering}
+\n stalwart friends, off on a whirlwind big-city adventure. I love it!
 
-{Twittering}
+\n -On the road again. Sing it with me, Shrek.
 
--Oh! You! You're comin' with me.
+\n -Hey. Oh, oh!
 
-- All right, that's what I like to hear, man. Shrek and Donkey, two 
+\n -I can't wait to get on the road again.
 
-stalwart friends, off on a whirlwind big-city adventure. I love it!
+\n -What did I say about singing?
 
--On the road again. Sing it with me, Shrek.
+\n -Can I whistle?
 
--Hey. Oh, oh!
+\n -No.
 
--I can't wait to get on the road again.
+\n -Can I hum it?
 
--What did I say about singing?
+\n -All right, hum it.
 
--Can I whistle?
+\n {Humming}
 
--No.
+\n 
 
--Can I hum it?
+\n {Grunts}
 
--All right, hum it.
+\n {Whimpering}
 
-{Humming}
+\n -That's enough. He's ready to talk.
 
+\n {Coughing}
 
+\n {Laughing}
 
-{Grunts}
+\n {Clears throat}
 
-{Whimpering}
+\n -Run, run, run, as fust as you can. You can't catch me. I'm the 
 
--That's enough. He's ready to talk.
+\n gingerbread man!
 
-{Coughing}
+\n -You are a monster.
 
-{Laughing}
+\n -I'm not the monster here. You are. You and the rest of that fairy 
 
-{Clears throat}
+\n tale trash, poisoning my perfect world. Now, tell me! Where are the 
 
--Run, run, run, as fust as you can. You can't catch me. I'm the 
+\n others?
 
-gingerbread man!
+\n -Eat me!{Grunts}
 
--You are a monster.
+\n -I've tried to be fair to you creatures. Now my patience has reached 
 
--I'm not the monster here. You are. You and the rest of that fairy 
+\n its end! Tell me or I'll - -
 
-tale trash, poisoning my perfect world. Now, tell me! Where are the 
+\n -No, no, not the buttons. Not my gumdrop buttons.
 
-others?
+\n -All right then. Who's hiding them?
 
--Eat me!{Grunts}
+\n -Okay, I'll tell you. Do you know the muffin man?
 
--I've tried to be fair to you creatures. Now my patience has reached 
+\n -The muffin man?
 
-its end! Tell me or I'll - -
+\n -The muffin man.
 
--No, no, not the buttons. Not my gumdrop buttons.
+\n -Yes, I know the muffin man, who lives on Drury Lane?
 
--All right then. Who's hiding them?
+\n -Well, she's married to the muffin man.
 
--Okay, I'll tell you. Do you know the muffin man?
+\n -The muffin man?
 
--The muffin man?
+\n -The muffin man!
 
--The muffin man.
+\n -She's married to the muffin man.
 
--Yes, I know the muffin man, who lives on Drury Lane?
+\n {Door opens}
 
--Well, she's married to the muffin man.
+\n -My lord! We found it.
 
--The muffin man?
+\n -Then what are you waiting for? Bring it in.
 
--The muffin man!
+\n {Man grunting}
 
--She's married to the muffin man.
+\n {Gasping}
 
-{Door opens}
+\n -Oh!
 
--My lord! We found it.
+\n -Magic mirror - - 
 
--Then what are you waiting for? Bring it in.
+\n -Don't tell him anything!
 
-{Man grunting}
+\n -No!
 
-{Gasping}
+\n {Ginerbread man whispers}
 
--Oh!
+\n -Evening. Mirror, mirror on the wall. Is this not the most perfect 
 
--Magic mirror - - 
+\n kingdom of them all?
 
--Don't tell him anything!
+\n -Well, technically you're not a king.
 
--No!
+\n -Uh, Thelonius.
 
-{Ginerbread man whispers}
+\n -You were saying?
 
--Evening. Mirror, mirror on the wall. Is this not the most perfect 
+\n -What I mean is, you're not a king yet. But you can become one.  All 
 
-kingdom of them all?
+\n you have to do is marry a princess.
 
--Well, technically you're not a king.
+\n -Go on.
 
--Uh, Thelonius.
+\n {Chuckles}
 
--You were saying?
+\n -So, just sit back and relax, my lord, because it's time for you to 
 
--What I mean is, you're not a king yet. But you can become one.  All 
+\n meet today's eligible bachelorettes. And here they are! Bachelorette 
 
-you have to do is marry a princess.
+\n number one is a mentally abused shut-in from a kingdom far, far away. 
 
--Go on.
+\n She likes sushi and hot tubbing anytime. Her hobbies include cooking 
 
-{Chuckles}
+\n and cleaning for her two evil sisters. Please welcome Cinderella.
 
--So, just sit back and relax, my lord, because it's time for you to 
+\n -Bachelorette number two is a cape-wearing girl from the land of 
 
-meet today's eligible bachelorettes. And here they are! Bachelorette 
+\n fancy. Although she lives with seven other men, she's not easy. Just 
 
-number one is a mentally abused shut-in from a kingdom far, far away. 
+\n kiss her dead, frozen lips and find out what a live wire she is. Come 
 
-She likes sushi and hot tubbing anytime. Her hobbies include cooking 
+\n on. Give it up for Snow White!
 
-and cleaning for her two evil sisters. Please welcome Cinderella.
+\n -And last, but certainly not last, bachelorette number three is a 
 
--Bachelorette number two is a cape-wearing girl from the land of 
+\n fiery redhead from a dragon-guarded castle surrounded by hot boiling 
 
-fancy. Although she lives with seven other men, she's not easy. Just 
+\n lava! But don't let that cool you off. She's a loaded pistol who likes 
 
-kiss her dead, frozen lips and find out what a live wire she is. Come 
+\n pina colads and getting caught in the rain. Yours for the rescuing, 
 
-on. Give it up for Snow White!
+\n Princess Fiona!
 
--And last, but certainly not last, bachelorette number three is a 
+\n -So will it be bachelorette number one, bachelorette number two or 
 
-fiery redhead from a dragon-guarded castle surrounded by hot boiling 
+\n bachelorette number three?
 
-lava! But don't let that cool you off. She's a loaded pistol who likes 
+\n -Two! Two!
 
-pina colads and getting caught in the rain. Yours for the rescuing, 
+\n -Three! Three!
 
-Princess Fiona!
+\n -Two! Two!
 
--So will it be bachelorette number one, bachelorette number two or 
+\n -Three! 
 
-bachelorette number three?
+\n -Three? One?
 
--Two! Two!
+\n {Shudders} Three?
 
--Three! Three!
+\n --Three! Pick number three, my lord!
 
--Two! Two!
+\n -Okay, okay, uh, number three!
 
--Three! 
+\n -Lord Farquaad, you've chosen Princess Fiona.
 
--Three? One?
+\n 
 
-{Shudders} Three?
+\n If you like pina coladas
 
---Three! Pick number three, my lord!
+\n And getting caught in the rain
 
--Okay, okay, uh, number three!
+\n 
 
--Lord Farquaad, you've chosen Princess Fiona.
+\n -Princess Fiona.
 
+\n 
 
+\n If you're not into yoga
 
-If you like pina coladas
+\n 
 
-And getting caught in the rain
+\n -She's perfect. All I have to do is just find someone who can go - - 
 
+\n -But I probably should mention the little thing that happens at night.
 
+\n -I'll do it.
 
--Princess Fiona.
+\n -Yes, but after sunset - -
 
+\n -Silence! I will make this Princess Fiona my queen, and DuLoc will 
 
+\n finally have the perfect king!
 
-If you're not into yoga
+\n Captain, assemble your finest men. We're going to have a tournament.
 
+\n 
 
+\n -But that's it. That's it right there. That's DuLoc. I told ya I'd 
 
--She's perfect. All I have to do is just find someone who can go - - 
+\n find it.
 
--But I probably should mention the little thing that happens at night.
+\n -So, that must be Lord Farquaad's castle.
 
--I'll do it.
+\n -Uh-huh. That's the place.
 
--Yes, but after sunset - -
+\n -Do you think maybe he's compensating for something?
 
--Silence! I will make this Princess Fiona my queen, and DuLoc will 
+\n {Laughs}
 
-finally have the perfect king!
+\n {Groans}
 
-Captain, assemble your finest men. We're going to have a tournament.
+\n -Hey, wait. Wait up, Shrek.
 
+\n -Hurry, darling. We're late. Hurry.
 
+\n -Hey, you!
 
--But that's it. That's it right there. That's DuLoc. I told ya I'd 
+\n {Screams}
 
-find it.
+\n -Wait a second. Look, I'm not gonna eat you. I just - - I just - -
 
--So, that must be Lord Farquaad's castle.
+\n {Whimpering}
 
--Uh-huh. That's the place.
+\n {Sighs}
 
--Do you think maybe he's compensating for something?
+\n {Whimpering, Groans}
 
-{Laughs}
+\n {Turnstile clatters}
 
-{Groans}
+\n {Chuckles}
 
--Hey, wait. Wait up, Shrek.
+\n {Sighs}
 
--Hurry, darling. We're late. Hurry.
+\n -It's quiet. Too quiet.
 
--Hey, you!
+\n {Creaking}
 
-{Screams}
+\n -Where is everybody?
 
--Wait a second. Look, I'm not gonna eat you. I just - - I just - -
+\n -Hey, look at this!
 
-{Whimpering}
+\n {Clattering, whirring, clicking}
 
-{Sighs}
+\n Welcome to DuLoc such a perfect town
 
-{Whimpering, Groans}
+\n Here we have some rules
 
-{Turnstile clatters}
+\n Let us lay them down
 
-{Chuckles}
+\n Don't make waves, stay in line
 
-{Sighs}
+\n And we'll get along fine
 
--It's quiet. Too quiet.
+\n DuLoc is perfect place
 
-{Creaking}
+\n Please keep off of the grass
 
--Where is everybody?
+\n Shine your shoes, wipe your... face
 
--Hey, look at this!
+\n DuLoc is, DuLoc is
 
-{Clattering, whirring, clicking}
+\n DuLoc is perfect ...... place
 
-Welcome to DuLoc such a perfect town
+\n {Camera shutter clicks
 
-Here we have some rules
+\n {Whirring}
 
-Let us lay them down
+\n -Wow! Let's do that again!
 
-Don't make waves, stay in line
+\n -No. No. No, no, no! No.
 
-And we'll get along fine
+\n {Trumpet fanfare}
 
-DuLoc is perfect place
+\n {Crowd cheering}
 
-Please keep off of the grass
+\n -Brave knights.
 
-Shine your shoes, wipe your... face
+\n -You are the best and brightest in all the land.
 
-DuLoc is, DuLoc is
+\n -Today one of you shall prove himself - -
 
-DuLoc is perfect ...... place
+\n -All right. You're going the right way for a smacked bottom.
 
-{Camera shutter clicks
+\n -Sorry about that.
 
-{Whirring}
+\n {Cheering}
 
--Wow! Let's do that again!
+\n -That champion shall have the honor - - no, no - - the privilege to go 
 
--No. No. No, no, no! No.
+\n forth and rescue the lovely Princess Fiona from the fiery keep of the 
 
-{Trumpet fanfare}
+\n dragon. If for any reason the winner is unsuccessful, the first 
 
-{Crowd cheering}
+\n runner-up will take his place and so on and so forth. Some of you mae 
 
--Brave knights.
+\n die, but it's a sacrifice I am willing to make.
 
--You are the best and brightest in all the land.
+\n {Cheering}
 
--Today one of you shall prove himself - -
+\n -Let the tournament begin!
 
--All right. You're going the right way for a smacked bottom.
+\n {Gasps}
 
--Sorry about that.
+\n -Oh!
 
-{Cheering}
+\n -What is that?
 
--That champion shall have the honor - - no, no - - the privilege to go 
+\n {Gasping}
 
-forth and rescue the lovely Princess Fiona from the fiery keep of the 
+\n -It's hideous!
 
-dragon. If for any reason the winner is unsuccessful, the first 
+\n -Ah, that's not very nice. It's just a donkey.
 
-runner-up will take his place and so on and so forth. Some of you mae 
+\n -Indeed. Knights, new plan! The one who kills the orge will be named 
 
-die, but it's a sacrifice I am willing to make.
+\n champion! Have it him!
 
-{Cheering}
+\n -Get him!
 
--Let the tournament begin!
+\n -Oh, hey! Now come on! Hang on now.
 
-{Gasps}
+\n -Go ahead! Get him!
 
--Oh!
+\n -Can't we just settle this over a pint?
 
--What is that?
+\n -Kill the beast!
 
-{Gasping}
+\n -No? All right then. Come on!
 
--It's hideous!
+\n 
 
--Ah, that's not very nice. It's just a donkey.
+\n I don't give a damn about my reputation
 
--Indeed. Knights, new plan! The one who kills the orge will be named 
+\n You're living in the past 
 
-champion! Have it him!
+\n It's a new generation
 
--Get him!
+\n 
 
--Oh, hey! Now come on! Hang on now.
+\n -Damn!
 
--Go ahead! Get him!
+\n {Whinnying}
 
--Can't we just settle this over a pint?
+\n 
 
--Kill the beast!
+\n A girl can do what she wants to do
 
--No? All right then. Come on!
+\n And that's what I'm gonna do
 
+\n And I don't give a damn about my bad reputation
 
+\n Oh, no, no, no, no, no. Not me
 
-I don't give a damn about my reputation
+\n Me, me, me
 
-You're living in the past 
+\n 
 
-It's a new generation
+\n -Hey, Shrek, tag me! Tag me!
 
+\n 
 
+\n And I don't give a damn about my bad reputation
 
--Damn!
+\n Never said I wanted to improve my station
 
-{Whinnying}
+\n 
 
+\n -Ah!
 
+\n {Laughs}
 
-A girl can do what she wants to do
+\n 
 
-And that's what I'm gonna do
+\n And I'm always feelin' good when I'm having fun
 
-And I don't give a damn about my bad reputation
+\n 
 
-Oh, no, no, no, no, no. Not me
+\n -Yeah!
 
-Me, me, me
+\n 
 
+\n And I don't have to please no one
 
 
--Hey, Shrek, tag me! Tag me!
 
+\n -The chair! Give him the chair!
 
 
-And I don't give a damn about my bad reputation
 
-Never said I wanted to improve my station
+\n And I don't give a damn about my bad reputation
 
+\n Oh, no, no, no, no, no. Not me
 
+\n Me, me, me
 
--Ah!
+\n Oh, no, no, no, no, no. Not me, not me
 
-{Laughs}
+\n {Bell dings}
 
+\n {Cheering}
 
+\n {Laughs}
 
-And I'm always feelin' good when I'm having fun
+\n -Oh, yeah! Ah! Ah! Thank you! Thank you very much! I'm here till 
 
+\n Thursday. Try the veal! Ha, ha!
 
+\n {Shrek laughs}
 
--Yeah!
+\n {Crowd gasping, murmuring}
 
+\n -Shall I give the order, sir?
 
+\n -No, I have a better idea. People of DuLoc, I give you our champion!
 
-And I don't have to please no one
+\n -What?
 
+\n -Congratulations, orge. You're won the honor of embarking on a great 
 
+\n and noble quest.
 
--The chair! Give him the chair!
+\n -Quest? I'm already in a quest, a quest to get my swamp back.
 
+\n -Your swamp?
 
+\n -Yeah, my swamp! Where you dumped those tale creatures!
 
-And I don't give a damn about my bad reputation
+\n {Crowd murmuring}
 
-Oh, no, no, no, no, no. Not me
+\n -Indeed. All right, orge. I'll make you a deal. Go on this quest for 
 
-Me, me, me
+\n me, and I'll give you your swamp back.
 
-Oh, no, no, no, no, no. Not me, not me
+\n -Exactly the way it was?
 
-{Bell dings}
+\n -Down to the last slime-covered toadstool.
 
-{Cheering}
-
-{Laughs}
-
--Oh, yeah! Ah! Ah! Thank you! Thank you very much! I'm here till 
-
-Thursday. Try the veal! Ha, ha!
-
-{Shrek laughs}
-
-{Crowd gasping, murmuring}
-
--Shall I give the order, sir?
-
--No, I have a better idea. People of DuLoc, I give you our champion!
-
--What?
-
--Congratulations, orge. You're won the honor of embarking on a great 
-
-and noble quest.
-
--Quest? I'm already in a quest, a quest to get my swamp back.
-
--Your swamp?
-
--Yeah, my swamp! Where you dumped those tale creatures!
-
-{Crowd murmuring}
-
--Indeed. All right, orge. I'll make you a deal. Go on this quest for 
-
-me, and I'll give you your swamp back.
-
--Exactly the way it was?
-
--Down to the last slime-covered toadstool.
-
--And the squatters?
+\n -And the squatters?
 
 -As good as gone.
 
